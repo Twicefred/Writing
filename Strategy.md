@@ -10,5 +10,5 @@ A visit to himbo hooters (or femboy hooters?)
 
 Big bear biology teacher helps you improve your grades
 
-Breedr date turns into relationship (cumflation, size diff story)
+Hookup / date turns into relationship (cum inflation, size diff story)
 

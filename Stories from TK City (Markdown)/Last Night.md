@@ -7,6 +7,8 @@
 
 *Comments, feedback and faves are greatly appreciated!*
 
+Sample Change
+
 Adam stared at the ceiling. New Years Day. It was dark outside. Him and Hyde had probably stumbled in at just after 7 in the morning, so he assumed it was late afternoon or early evening.
 
 Closing his eyes, he patted the warm spot next to him. *‘Where’s he gone?’* Adam thought. His question was answered when he heard a faucet running in the next room. Shortly, the sound of dull claws against the hardwood floor alerted him to the presence of his boyfriend.

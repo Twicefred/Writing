@@ -60,4 +60,11 @@ Species: Lion
 
 Age: 70
 
-Harold Goldberner is the older, estranged brother of Celine Fontainebleau. 
+Harold Goldberner is the older, estranged brother of Celine Fontainebleau. Owing to a fight with their since deceased parents, he was disowned and excluded from the will, leaving Celine the sole heiress.
+
+Harold was the editor-in-chief of the *Union Gazette*, one of the city's largest newspapers. He has since retired and lives with his wife.
+
+Harold has a tense relationship with his sister. He believes that he is owed part of the family wealth, but his sister chose to follow their parents' wishes and did not contest the will. Now that the family fortune is dwindling away, he feels both sadness and spite at the events unfolding.
+
+Harold is initially suspected to be involved in the death of Leonidas Fontainebleau, but his name is cleared when he provides Franklin with an alibi.
+

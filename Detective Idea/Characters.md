@@ -68,3 +68,6 @@ Harold has a tense relationship with his sister. He believes that he is owed par
 
 Harold is initially suspected to be involved in the death of Leonidas Fontainebleau, but his name is cleared when he provides Franklin with an alibi.
 
+#
+
+**

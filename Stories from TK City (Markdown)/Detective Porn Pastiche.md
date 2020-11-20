@@ -8,4 +8,4 @@
 
 Franklin Connaught surveyed the scene. The worst mess had been cleaned up, but the club would remain closed for the time being.
 
-"Why haven't the police 
+"Why haven't the police

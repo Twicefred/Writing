@@ -1,8 +1,8 @@
-# Private Eye Porn Pastiche
+# Private Eye Porn
 
 **When a dead body is discovered in the dining room of a vast country mansion, detective Robert "Raunchy" Rizzolini is called to the scene to investigate. Using his second-to-none powers of deduction, he cracks the case.**
 
-**When I started writing this, it was a serious detective story with light romantic undertones. I quickly derailed it into erotic pastiche.**
+**When I started writing this, it was a serious detective story. I quickly derailed it into erotic pastiche.**
 
 
 

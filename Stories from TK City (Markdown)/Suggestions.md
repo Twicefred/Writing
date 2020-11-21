@@ -141,15 +141,15 @@ I put it down and picked up the paper that had fallen out along with it. It was 
 
 I stood for a long time, just looking at the ring sitting in the palm of my hand. It was beautiful. The simple, polished surface along with the precious stone caught the light in an entrancing way, beckoning me to just keep watching it. I need to return this, I thought to myself, putting the ring down on the bathroom counter and continuing my business of loading the washing machine. And yet I didn’t do that at all.
 
-As I exited the bathroom, I stopped suddenly in the doorway and looked down at my hand. There it was. The band of metal on my finger. I still held the piece of paper in my hand, and I looked at it again. Wear the ring and others will carry out their wishes, I recited in my head.
+As I exited the bathroom, I stopped suddenly in the doorway and looked down at my hand. There it was. The band of metal on my finger. I still held the piece of paper in my hand, and I looked at it again. '*Wear the ring and others will carry out their wishes,*' I recited in my head.
 
 That was impossible. A piece of jewellery couldn’t confer any special powers onto a person more than anything else could. Nevertheless, the ring looked so good on my finger. For an object that had allegedly been made for someone powerful and mighty, it fit perfectly on my ordinary hand.
 
-Wear the ring and others will carry out your wishes.
+*Wear the ring and others will carry out your wishes.*
 
 From the other room, I could hear the television blaring. Frantic voices spoke in high tones, names and numbers flying by as the commenters described an event currently unfolding.
 
-Wear the ring and he will carry out your wishes.
+*Wear the ring and he will carry out your wishes.*
 
 I walked slowly to the door, my mind focusing in on the tantalising possibility that what I had in my possession actually worked the way it alleged. And could there be a better way to try it out than to attempt to finally pick the forbidden fruit that had dangled before me for all these years?
 
@@ -374,7 +374,8 @@ His prediction came true. We lay together for a long time, building the energy t
 As the day came to an end, we retired together to my bedroom. I made a mental note to buy a bigger bed, now that we finally shared one. As I rested against his chest, I spent an hour simply running my hands through his soft fur as we talked. I’d discovered a new side of him, but the old Lex that I loved was still there.
 
 “I’m looking forward to tomorrow.” I said as I slipped the ring off my finger and gingerly laid it on my nightstand. I didn’t know that I would use it again, but it’s power had brought a happiness I’d never known before.
-
+</br>
+</br>
 
 I awoke much like I had fallen asleep, feeling Lex’s arms around me, holding me tight against his larger frame. I could barely move an inch like this, but I didn’t really mind. For the briefest of moments, I thought that I was still dreaming, but as the memories from the past day came crashing onto me, I realised that it was all real.
 

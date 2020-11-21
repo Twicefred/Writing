@@ -58,7 +58,11 @@ Robert looked at the lion sitting in front of him. '*There is no way this guy fo
 
 "It's available for the staff to use as well, most find it to be a nice benefit," The lion said as they walked together. He led Robert through a series of rooms and corridors, each more opulently furnished than the next.
 
-The gym was the most austere room in the mansion, filled only with weights and workout machines. Half the walls were covered in mirrors, making the room appear much larger than it really was.
+While they walked, Robert attempted a mental map of the vast estate. The building centred around a grand entry hall, with two wings on either side. On one side lay the dining room, library and drawing room. On the other side were rooms displaying the family Morganstein's vast collection of artworks.</br>
+Each wing of the building connected to the basement via several smaller stairways, all hidden away behind colonnades and inconspicuous doors.</br>
+The second floor, in turn, was only accessible via a central grand staircase and one passageway for servants. It housed bedrooms and guest rooms, as well as Maximilian's offices.
+
+The gym was the most austere room in the mansion, filled only with weights and workout machines. The far wall was covered in mirrors, making the room appear much larger than it really was.
 
 ### PT Sex Scene </br>
 "I'll show you what strength looks like," Sebastian said, 

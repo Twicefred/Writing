@@ -8,7 +8,7 @@ Short, plentiful sex scenes peppered with humour.
 
 **Detective** - Switch</br>
 Species: Human</br>
-Name: Rob "Randy" Rizzolini
+Name: Rob "Raunchy" Rizzolini
 
 
 **Estate Agent** - Murder victim</br>

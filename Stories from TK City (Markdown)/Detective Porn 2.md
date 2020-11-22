@@ -15,7 +15,7 @@ Maximilian switched the light on and turned around. Immediately the room was bat
 </br>
 "And that's when I discovered him," Maximilian said, sinking back into the velvet armchair. He clutched a glass of whiskey in one paw, fortification for his nerves.
 
-"Thank you, Mr. Morganstein." Detective Robert Rizzolini closed his notebook and stood up. "I have a few other questions for you, but I'd like to spend some more time to inspect the crime scene. Where will I be able to find you?"
+"Thank you, Mr. Morganstein." Detective Robert Rizzolini closed his notebook and stood up. "I'll have a few more questions for you, but I'd like to spend some time inspecting the crime scene. Where will I be able to find you?"
 
 "I have no pressing engagements," Maximilian said, taking a hefty sip from his drink. "I'll be here or in my office upstairs if you need me."
 

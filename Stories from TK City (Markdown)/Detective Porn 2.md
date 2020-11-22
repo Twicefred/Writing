@@ -13,6 +13,7 @@ Maximilian picked up a glass from the small wet bar he had set up, but there was
 Maximilian switched the light on and turned around. Immediately the room was bathed in warm light from two of the three great crystal chandeliers. The lion's breath caught in his throat as his eyes adjusted to the light. In shock, the glass he'd been holding slipped from his paw and shattered against the dark hardwood floor.</br>
 </br>
 </br>
+
 "And that's when I discovered him," Maximilian said, sinking back into the velvet armchair. He clutched a glass of whiskey in one paw, fortification for his nerves.
 
 "Thank you, Mr. Morganstein." Detective Robert Rizzolini closed his notebook and stood up. "I'll have a few more questions for you, but I'd like to spend some time inspecting the crime scene. Where will I be able to find you?"
@@ -25,7 +26,7 @@ Robert nodded and left Maximilian to his drink. He walked briskly out of the gra
 
 "Nothing we didn't see the first time," A policeman answered, stepping back as Robert approached the crime scene.
 
-The dining room centred on a large mahogany table. Splotches of congealed blood covered the polished surface. The table had cracked in the middle where the middle of three grand chandeliers had crashed into it from above. Below the destroyed mass of delicate crystal and shining metal lay a dead raccoon.
+The dining room centred on a large mahogany table. Splotches of congealed blood covered the polished surface. The table had cracked in the middle where one of the three grand chandeliers had crashed into it from above. Below the twisted mass of delicate crystal and shining metal lay a dead raccoon.
 
 "One hell of a way to go," Robert said to himself as he leaned in to look closer. He opened his notebook to go over the details he'd been given. "Levi Lawson, 32 years old," He recited quietly.
 

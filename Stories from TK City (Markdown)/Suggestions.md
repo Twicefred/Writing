@@ -4,7 +4,7 @@ _Unanswered love is the most painful love of all. For years, Jim has resigned hi
 
 _If a magical artefact falls into your possession, it’s my hope that you use it less selfishly than Jim. The premise of this story is ethically dubious to say the least. If this makes you uneasy, consider yourself warned._
 
-#
+### Break
 
 “So, how’s life with the special needs student?” Sira said, snickering quietly across the table from me. I folded my arms across my chest and looked at her in annoyance.
 
@@ -12,10 +12,10 @@ _If a magical artefact falls into your possession, it’s my hope that you use i
 
 “Not his fault? Jennifer had him out on his ass because she couldn’t stand another day with a person who’s that dense!” Sira said, growing annoyed at me in turn. “Their relationship was none of my business, but if you seriously think it was only her fault that it worked out the way it did, Lex isn’t the only one who would benefit from a few extra IQ points.”
 
-We were discussing my childhood friend and current tenant, Lex McCormack. His ex-girlfriend had kicked him out of her house a while past, and since then he had been staying at my apartment. It wasn’t an arrangement entirely out of empathy, I did have a spare room and could use the extra rent money.
+We were discussing my childhood friend and current tenant, Lex McCormack. His ex-girlfriend had kicked him out of her house a while past, and since then he had been staying at my apartment. It wasn’t an arrangement entirely out of empathy, I did have a spare room and could use the extra rent money.</br>
 The issue with Lex was that he wasn’t the sharpest tool in the shed. In fact, a person with a less friendly disposition toward him might describe Lex as staggeringly dumb. Having known him for well over 20 years, I wouldn’t use that language, but it wasn’t exactly wrong.
 
-His saving grace was that Lex was difficult to dislike if you got close to him. He had a warm personality, and an ironclad loyalty to those he loved. Losing everything when Jennifer, the cruel witch that she was, cut him off, had utterly broken him. I found out that it had happened when he appeared outside my door at night with a suitcase, asking me through heavy sobs if he could stay with me for a while.
+His saving grace was that Lex was difficult to dislike if you got close to him. He had a warm personality, and an ironclad loyalty to those he loved. Losing everything when Jennifer, the cruel witch that she was, cut him off, had utterly broken him. I found out that it had happened when he appeared outside my door at night with a suitcase, asking me through heavy sobs if he could stay with me for a while.</br>
 Naturally, I couldn’t refuse his request and he had been renting my spare room for three months now.
 
 “Sira, can we not fight about this? I’m really not in the mood.” I said, taking a drink from my glass of wine. She nodded, taking a sip of wine herself. We sat quietly for a few minutes, unconsciously avoiding eye contact. I fiddled with my wristwatch, idly watching Sira swish her tail behind her, narrowly avoiding getting herself tangled into the people walking past us.
@@ -64,7 +64,7 @@ Coming to the very back of the room, I noticed a shelf that was conspicuously em
 
 Only a small bronze plaque was fixed to the wooden surface at the bottom of the shelf. I shone my flashlight at it and tried to make out the writing.
 
-‘Ring of Will – 201 to 350 A.D.’
+‘*Ring of Will – 201 to 350 A.D.*’
 
 No other details were present, but there very clearly was no item to be found that matched the description. I got down on my knees and scanned the floor surrounding the shelf, trying to see if anything had been swept away by an errant janitor. I had no luck, and decided that I would let my boss know that I had noticed an item missing.
 
@@ -92,7 +92,7 @@ I lay still for a while, staring up at the ceiling. I looked to the side at my n
 
 “Did you check the batteries?” I asked, walking toward the coffee table and picking up the remote. “Because you need to change them from time to time.”
 
-Lex didn’t answer, seemingly preoccupied. Yeah, there’s nothing wrong with it, I thought, pressing a few buttons and finding no issue with switching channels. Has he seriously forgotten how a tv remote works?
+Lex didn’t answer, seemingly preoccupied. '*Yeah, there’s nothing wrong with it,*' I thought, pressing a few buttons and finding no issue with switching channels. '*Has he seriously forgotten how a tv remote works?*'
 
 I put it out of my mind as I noticed Lex putting down two plates on the kitchen table. A small portion for myself, and a veritable mountain of food for him. I wasted no time in scarfing down the omelette, washing it down with a glass of orange juice.
 

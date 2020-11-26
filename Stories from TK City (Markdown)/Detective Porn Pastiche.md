@@ -2,31 +2,35 @@
 
 **When a dead body is discovered in the dining room of a vast country mansion, detective Robert "Raunchy" Rizzolini is called to the scene to investigate. Using his second-to-none powers of deduction, he cracks the case.**
 
-**When I started writing this, it was a serious detective story. I quickly derailed it into erotic pastiche.**
+**When I started writing this, it was a serious detective story. My deadly fear of writing anything without sex in it derailed the project into erotic pastiche.**
 
 
+Maximilian Morganstein closed the front door behind him. Home at last. The entry hall was dark, save for a sliver of moonlight shining through the stained glass windows. It was enough for Maximilian's keen feline eyes, and he strode quietly through to the great hall just adjacent.
+
+Leaving his luggage on the dark green carpet, Maximilian yawned and stretched. He was tired from his journey, but not sleepy.</br>
+'*Florian will be most upset I had to let myself in,*' The lion thought, unbuttoning his coat and throwing it onto the luggage. Florian, his butler, would take care of it in the morning.
+
+It was late, closer to morning than evening, but Maximilian had travelled far and hadn't quite turned the clock back fully. He'd need to get some sleep eventually, but for now he could settle in with a drink and a good book.</br>
+Opening the door to the dining room, he felt his way along the wall to where he knew a few bottles of liquor would be. The dining room was darker, the moon didn't quite shine through the tall windows.</br>
+Maximilian picked up a glass from the small wet bar he had set up, but there wasn't at all enough light to pour a drink. Leading the way with one paw stretched out, he looked for the light switch.
+
+Maximilian switched the light on and turned around. Immediately the room was bathed in warm light from two of the three great crystal chandeliers. The lion's breath caught in his throat as his eyes adjusted to the light. In shock, the glass he'd been holding slipped from his paw and shattered against the dark hardwood floor.</br>
+</br>
+</br>
 
 Robert Rizzolini's trained eyes surveyed the room. A gruesome scene, truly, but he'd seen worse in his days.
 
-"Tell me, when exactly did you discover what had happened?"
+"And that's when I saw it," Maximilian said, turning to avoid the gore in front of him.
 
-Maximilian Morganstein took off his eyeglasses to polish them with a handkerchief. Robert watched as the lion rubbed the cloth across the glass. He seemed to be creating more smudges than he wiped off.
-
-"Late yesterday night," Maximilian began, putting the glasses back on. "I'd just returned from visiting my brother. I was scheduled to arrive home today, but I returned early and had to let myself in." Robert stood still as Maximilian paced the room. The sun shone in through the tall windows, glittering in the glass display cases lining the opposite wall. "Normally, Florian would be there to greet me, but I hadn't informed him of the change in time. He was most upset that I'd had to fend for myself."
-
-Florian, the butler, had greeted Robert when he had arrived an hour earlier. The tall Friesian horse had been reluctant to let Robert examine the dining room unsupervised, but even a devoted servant had to bow to police protocol.
-
-"I didn't feel very tired, so I resolved to catch up on some reading. I went to get myself a drink..." Maximilian's voice petered out. He pointed to the dining room table. "And that's when I saw it."
-
-The polished mahogany table was covered in congealed blood. It had cracked in the middle where a massive chandelier had crashed into it from above. The delicate crystals and shining metal barely covered the dead body beneath it. It was safe to assume that this wasn't a natural death.
+The polished mahogany table was covered in congealed blood. It had cracked in the middle where a massive chandelier had crashed into it from above. The delicate crystals and shining metal barely covered the dead racoon beneath it. It was safe to assume that this wasn't a natural death.
 
 "I understand the deceased had been in your employ for quite some time?"
 
-"Indeed he had," Maximilian said. He turned away from the dead body with a frown. "I'm sorry, detective, but can we perhaps continue our conversation elsewhere?"
+"Indeed he had," Maximilian said, frowning. "I'm sorry, detective, but can we perhaps continue our conversation elsewhere?"
 
 Robert nodded his agreement and Maximilian led them out of the dining room into the adjacent library. Robert's shoes creaked against the hardwood floor, but despite his considerable size, Maximilian's naked paws were completely silent. 
 
-"I hired Levi five years ago," Maximilian said, motioning for Robert to sit down in a green velvet sofa. "His father had worked for me earlier, so he was a perfect candidate for the job. Estates like these are a rare sight these days, and we have to be clever to survive. Levi does-" Maximilian stopped himself, the sofa creaking as he sank into the cushions. "Levi *did* a lot to modernise and save this estate from ruin. I wouldn't be sitting here today if it weren't for him."
+"I hired Levi five years ago," Maximilian said, motioning for Robert to sit down in a green velvet sofa. "His father had worked for me earlier, so he was a perfect candidate for the job. Estates like these are a rare sight these days, and we have to be clever to survive. Levi does-" Maximilian stopped himself, the sofa creaking as he sank into the cushions. "Levi *did* a lot to modernise and save this house from ruin. I wouldn't be sitting here today if it weren't for him."
 
 "It sounds like you were close. I'm sorry for your loss Mr. Morganstein," Robert said. The lion nodded back. He kept a stiff upper lip, but Robert could tell that Levi Lawson's death weighed heavily on his mind. Then again, finding a dead body on your dinner table would throw anyone for a loop.
 
@@ -63,6 +67,8 @@ Each wing of the building connected to the basement via several smaller stairway
 The second floor, in turn, was only accessible via a central grand staircase and one passageway for servants. It housed bedrooms and guest rooms, as well as Maximilian's offices.
 
 The gym was the most austere room in the mansion, filled only with weights and workout machines. The far wall was covered in mirrors, making the room appear much larger than it really was.
+
+
 
 ### PT Sex Scene </br>
 "I'll show you what strength looks like," Sebastian said, 

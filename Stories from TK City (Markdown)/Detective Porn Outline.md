@@ -60,3 +60,19 @@ The gardener is initially not a suspect because of his small stature, but when R
 Gabriel suspected that Levi was mismanaging the estate's money because he was involved in purchasing supplies and the numbers didn't add up. When he confronted Levi, the estate agent retaliated by blackmailing him.
 
 To protect Maximilian, Gabriel murders Levi.
+</br>
+</br>
+
+### Chapter 1
+Introduction to premise. Scene between Robert and Sebastian.
+
+### Chapter 2
+Scene between Robert and Claude.
+
+### Chapter 3
+Scene between Robert and Gabriel.
+
+### Chapter 4
+Scene between Robert and Florian.
+
+### Chapter 5

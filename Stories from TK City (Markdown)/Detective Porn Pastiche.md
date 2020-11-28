@@ -4,6 +4,7 @@
 
 **When I started writing this, it was a serious detective story. My deadly fear of writing anything without sex in it derailed the project into erotic pastiche.**
 
+# Chapter 1
 
 Maximilian Morganstein closed the front door behind him. Home at last. The entry hall was dark, save for a sliver of moonlight shining through the stained glass windows. It was enough for Maximilian's keen feline eyes, and he strode quietly through to the great hall just adjacent.
 
@@ -22,13 +23,13 @@ Robert Rizzolini's trained eyes surveyed the room. A gruesome scene, truly, but 
 
 "And that's when I saw it," Maximilian said, turning to avoid the gore in front of him.
 
-The polished mahogany table was covered in congealed blood. It had cracked in the middle where a massive chandelier had crashed into it from above. The delicate crystals and shining metal barely covered the dead racoon beneath it. It was safe to assume that this wasn't a natural death.
+The green Persian rug was soaked with congealed blood. In the very middle, a great chandelier fallen from above. The delicate crystals and shining metal barely covered the dead racoon beneath it. It was safe to assume that this wasn't a natural death.
 
 "I understand the deceased had been in your employ for quite some time?"
 
 "Indeed he had," Maximilian said, frowning. "I'm sorry, detective, but can we perhaps continue our conversation elsewhere?"
 
-Robert nodded his agreement and Maximilian led them out of the dining room into the adjacent library. Robert's shoes creaked against the hardwood floor, but despite his considerable size, Maximilian's naked paws were completely silent. 
+Robert nodded his agreement and Maximilian led them out of the dining room into the adjacent library. Robert's shoes creaked against the floor, but despite his considerable size, Maximilian's naked paws were completely silent.
 
 "I hired Levi five years ago," Maximilian said, motioning for Robert to sit down in a green velvet sofa. "His father had worked for me earlier, so he was a perfect candidate for the job. Estates like these are a rare sight these days, and we have to be clever to survive. Levi does-" Maximilian stopped himself, the sofa creaking as he sank into the cushions. "Levi *did* a lot to modernise and save this house from ruin. I wouldn't be sitting here today if it weren't for him."
 
@@ -40,7 +41,7 @@ Robert nodded his agreement and Maximilian led them out of the dining room into 
 
 Robert's gaze wandered around the room as Maximilian described what he knew of Levi's relationships. Not much in the way of family, except a sister in the nearby village. A few friends, but none lived close by.
 
-Levi's body was discovered in the dining room. While an autopsy hadn't been performed, Robert assumed the cause of death to be blunt force trauma from the overhead chandelier falling onto him. '*That would mean the killer is likely someone in the mansion household,*' Robert thought. At the very least, someone on the inside was a co-conspirator. He'd need a list of staff members to speak to, but where to begin?
+Levi's body was discovered in the dining room. While an autopsy hadn't been performed, Robert assumed the cause of death was being crushed beneath the chandelier. '*That would mean the killer is likely someone in the mansion household,*' Robert thought. At the very least, someone on the inside was a co-conspirator. He'd need a list of staff members to speak to, but where to begin?
 
 "The only thing I can think of, is a fight Levi got into with Sebastian a month ago," Maximilian said, leaning forward in the sofa. A fight. That was a start.
 
@@ -73,10 +74,18 @@ The gym was the most austere room in the mansion, filled only with weights and w
 ### PT Sex Scene </br>
 "I'll show you what strength looks like," Sebastian said, 
 
+# Chapter 2
+
 ### Chef Sex Scene </br>
+
+# Chapter 3
 
 ### Gardener Sex Scene </br>
 
+# Chapter 4
+
 ### Butler Sex Scene </br>
+
+# Chapter 5 (?)
 
 ### Murderer reveal scene </br>

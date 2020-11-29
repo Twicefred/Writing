@@ -72,7 +72,7 @@ Sebastian leads Robert to Claude, hinting that the chef had it in for Levi. Howe
 Scene between Robert and Claude.
 
 Claude is the estate chef. He is involved in the estate's purchases and is the one who discovers that Levi has been embezzling money. However, he is reluctant to take action as Levi knows that he is living under a false identity.</br>
-Claude has a motive for murder, but no inclination to go through with the deed. If the estate faces bankruptcy, Maximilian's reference and his experience will all but guarantee him a job at any restaurant he wishes.</br>
+Claude has a weak motive for murder, but no inclination to go through with the deed. If the estate faces bankruptcy, Maximilian's reference and his experience will all but guarantee him a job at any restaurant he wishes.</br>
 Claude has a long-standing conflict with Sebastian. The latter thinks that the chef should prepare healthier food for Maximilian, whereas Claude simply follows Maximilian's wishes. In the eyes of the world, this makes Sebastian look like an incompetent PT.</br>
 Claude eventually confides the information about Levi's mismanagement to his friend, Gabriel. Claude thinks that the gardener will tell Maximilian or alert the authorities, but he is unaware of the relationship between Gabriel and Maximilian.
 
@@ -81,9 +81,12 @@ Scene between Robert and Gabriel.
 '
 Gabriel Greene is the estate gardener. He is secretly romantically involved with Maximilian. The two have mutually decided to keep their relationship discreet, as their respective families would disapprove. They are planning to make it public eventually, and both look forward to living together openly.</br>
 When Gabriel finds out that Levi has been stealing from the estate, he confronts Levi. The agent, however, retaliates by blackmailing him with evidence of his affair with Maximilian. In desperation, Gabriel hits Levi with a shovel, knocking him unconscious. Realising what he's done, he severs the tether holding up the chandelier in the dining room and drops it on the gardener.</br>
-However, none of this is made apparent to Robert immediately.
+However, none of this is made apparent to Robert immediately. Gabriel denies any knowledge of Levi's death and instead deflects blame to the butler. Without knowledge of Gabriel and Maximilian secretly having an affair, Gabriel has no motive to murder Levi.
 
 ### Chapter 4
 Scene between Robert and Florian.
+
+Florian has both means and motive to commit murder. Levi's mismanagement of the estate threatens his livelihood, and his modernisations are rapidly making a butler superfluous. All the other estate staff could easily find other jobs, but Florian's predicament is more severe.</br>
+Ultimately, however, Florian is unaware of Levi's criminal enterprise and is likely to retire quite soon.
 
 ### Chapter 5

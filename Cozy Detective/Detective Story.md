@@ -1,8 +1,8 @@
 # Private Eye Porn
 
-**When a dead body is discovered in the dining room of a vast country mansion, detective Robert "Raunchy" Rizzolini is called to the scene to investigate. Using his second-to-none powers of deduction, he cracks the case.**
+**When a dead body is discovered in the dining room of a vast country mansion, detective Robert Rizzolini is called to the scene to investigate. Using his second-to-none powers of deduction, he cracks the case.**
 
-**When I started writing this, it was a serious detective story. My deadly fear of writing anything without sex in it derailed the project into erotic pastiche.**
+**I originally wrote this as a weird pornographic detective pastiche, but I ended up cutting out all the horny bits. Something about sex scenes and murder mystery doesn't quite satisfy me.**
 
 # Chapter 1
 
@@ -43,17 +43,17 @@ Robert's gaze wandered around the room as Maximilian described what he knew of L
 
 Levi's body was discovered in the dining room. While an autopsy hadn't been performed, Robert assumed the cause of death was being crushed beneath the chandelier. '*That would mean the killer is likely someone in the mansion household,*' Robert thought. At the very least, someone on the inside was a co-conspirator. He'd need a list of staff members to speak to, but where to begin?
 
-"The only thing I can think of, is a fight Levi got into with Sebastian a month ago," Maximilian said, leaning forward in the sofa. A fight. That was a start.
+"The only thing I can think of, is a fight Levi got into with Sebastian a month ago," Maximilian said, leaning forward in the sofa. A fight? That was a place to start.
 
 "What was it about?"
 
-"I can't remember, I don't think it was very serious. Sebastian is a tad hot-headed, so it doesn't surprise me. I only learned of it second hand when Fernando mentioned it to me."
+"I can't remember, I don't think it was very serious. Sebastian is a tad hot-headed, so it doesn't surprise me. I only learned of it second-hand when Florian mentioned it to me."
 
 "And who is Sebastian?" Robert asked, pulling a weathered notebook from his coat pocket.
 
 "He's my personal trainer and dietician," Maximilian said. "I take my health seriously, and Sebastian is the very best in the business."
 
-Robert looked at the lion sitting in front of him. '*There is no way this guy follows advice from a PT,*' He thought. Maximilian did not look like a man who spent any significant time in a gym. The way in which he filled out his tweed jacket testified to a love of good food and good living. Robert didn't mind the lion's looks, he was quite a striking figure, but why tell such an obvious lie?
+Robert looked at the lion sitting in front of him. '*There's no way this guy follows advice from a PT,*' He thought. Maximilian did not look like a man who spent any significant time in a gym. The way in which he filled out his tweed jacket testified to a love of good food and good living. Robert didn't mind the lion's looks, he was quite a striking figure, but why tell such an obvious lie?
 
 "Where might I find him?"
 
@@ -67,25 +67,21 @@ While they walked, Robert attempted a mental map of the vast estate. The buildin
 Each wing of the building connected to the basement via several smaller stairways, all hidden away behind colonnades and inconspicuous doors.</br>
 The second floor, in turn, was only accessible via a central grand staircase and one passageway for servants. It housed bedrooms and guest rooms, as well as Maximilian's offices.
 
-The gym was the most austere room in the mansion, filled only with weights and workout machines. The far wall was covered in mirrors, making the room appear much larger than it really was.
+The gym was the most austere room in the mansion, filled only with weights and modern workout machines. The far wall was covered in mirrors, making the room appear much larger than it really was.
+
+"Sebastian should be around here somewhere," Maximilian said, looking around the room. To Robert, it seemed obvious he didn't visit very often.
+
+"
+
+###
+
+"So, what's your role here?" Robert asked as 
 
 
+"What was your relationship to Mr. Lawson?" Robert asked, sitting down on the padded bench of a nearby workout machine. Sebastian's tail swished in annoyance behind him. Robert knew this was the wrong form for this particular machine, but he didn't care enough to change position.
 
-### PT Sex Scene </br>
-"I'll show you what strength looks like," Sebastian said, 
+"I didn't really have one," Sebastian said, leaning against the wall. "All the purchases for the gym went through him, but I didn't do much more than give him a list of what I needed."
 
-# Chapter 2
+"Mr. Morganstein claims you were in a fight with him," Robert said, peering up at Sebastian.
 
-### Chef Sex Scene </br>
-
-# Chapter 3
-
-### Gardener Sex Scene </br>
-
-# Chapter 4
-
-### Butler Sex Scene </br>
-
-# Chapter 5 (?)
-
-### Murderer reveal scene </br>
+"A fight?" Sebastian looked taken aback. "Do you mean the argument we had about 

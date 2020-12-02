@@ -1,9 +1,11 @@
 
-# Christmas 1st date story
+# Christmas anniversary story
 
-Bear and Human go on 1st real date just before Christmas. 1st time.
+Byron (bear) and David (human) celebrate their anniversary just before Christmas. Flashback to their 1st time and current relationship.
 
-Byron - bear
+Byron Matheson - bear
+
+David Hawley - human
 
 #
 

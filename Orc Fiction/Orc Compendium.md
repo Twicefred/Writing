@@ -10,7 +10,7 @@ Average Orc Female height; 2m
 **Hair**; While different than in Humans, Orcs have similar variations in hair colour, though darker hair is more common. Blonde hair is the most uncommon, while bright red is the most common other than dark brown.</br>
 **Teeth**; Orcs have sharper teeth and two to four prominent tusks on their lower jaw, generally rising up to 8cm at the tip. Longer outliers have been recorded. Many Orc cultures decorate both male and female tusks with piercings, burned patterns or other ornaments.</br>
 **Ears**; Orcs have sharply tipped ears that rise taller than Human ears. This is believed to be an evolutionary relict and does not impact their sense of hearing.</br>
-Reproduction; Orcs are mammals and reproduce in the same way as Humans do, though an Orc pregnancy runs for 11 months from conception to birth. Orc mothers nurse their children in the same way that Human mothers do, and children develop in roughly the same timeframe that Humans do. While Orcs and Humans are very similar in many regards, they are separate species and cannot interbreed.</br>
+**Reproduction**; Orcs are mammals and reproduce in the same way as Humans do, though an Orc pregnancy runs for 11 months from conception to birth. Orc mothers nurse their children in the same way that Human mothers do, and children develop in roughly the same timeframe that Humans do. While Orcs and Humans are very similar in many regards, they are separate species and cannot interbreed.</br>
 **Sexuality**; Orcs vary in sexuality and sexual expression in much the same ways that Humans do, though notably many majority Orc cultures are historically less hostile to non-heterosexuals.
 Senses; While not as pronounced a difference as with other species, Orcs have noticeably keener senses of smell and hearing than Humans. Conversely, Humans on average enjoy better eyesight.
 Due mainly to difference in body size, Humans also have a sharper sense of touch, especially in the hands.</br>
@@ -37,7 +37,7 @@ Conversely, most Humans know and appreciate that Orcs take pride in protecting t
 
 ## Writing Notes;
 
-Grammar; The word “Orc” is always capitalised, same as the word “Human”.
+Grammar; The word “Orc” is always capitalised, same as the word “Human”.</br>
 While this isn’t proper English, I believe that in a world where two species coexist in the way I want to describe, there would be grammatical differences highlighting the fact that they are trying to get along whilst being mindful of each other’s differences.
 
 Naming Conventions; Orcish names are commonly either patronymic or matronymic, depending on culture or family circumstance. In Europe and the Americas, Orc names are constructed with a given name first, followed by Ga’ (son of) or Da’ (daughter of) followed by either their mother’s or father’s given name.

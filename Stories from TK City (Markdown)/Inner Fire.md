@@ -9,7 +9,7 @@ Human - David Hawley
 
 *When your boyfriend goes into heat, it's your job to sate his urges.*
 
-*The release of WoW Shadowlands has occupied much of my free time, but after staring at my Tauren for a few hours straight, I knew I needed to take some time to write out exactly what I would let him do to me.*
+*The release of WoW Shadowlands has occupied much of my free time, but after staring at my buff Tauren for a few hours straight, I knew I needed to take some time to write out exactly what I would let him do to me.*
 
 *Comments, feedback and faves are much appreciated!*
 
@@ -33,7 +33,7 @@ By genetic lottery, Byron went into heat every three months. He'd explained the 
 
 When it started, he became a shadow of his former self. He barely spoke, and when he did it was clear he didn't have any happy thoughts to share. The saving grace was that he seemed so out of it himself that he barely realised what was happening, but seeing him so brought down was a shock.
 
-So you persuaded him to stop. After all, he didn't have to deal with what he was going through alone. The next time around, he was a changed man. Usually, Byron was a gentle, apprehensive person. He made you open important letters when he got too nervous to read them, jumped at loud noises and hugged you at night like he was terrified you were going to slip through his fingers. Not that you minded any of that. Being trusted is rewarding in itself.
+So you persuaded him to stop. After all, he didn't have to deal with what he was going through alone. The next time around, he was a changed man. Usually, Byron was an apprehensive, gentle soul. He made you open important letters when he got too nervous to read them, jumped at loud noises and hugged you at night like he was terrified you were going to slip through his fingers. Not that you minded any of that, you were happy to be his strength when he needed it. After all, being trusted is its own reward.
 
 When the heat took hold, it all faded. He became brash, full of confidence bordering on arrogance. He saw what he wanted and now he was going to reach out and take it.
 
@@ -47,7 +47,7 @@ When the heat took hold, it all faded. He became brash, full of confidence borde
 
 You don't move much for the rest of the afternoon and evening. You can feel the fire building within Byron. He gets quiet and possessive, holding you tight as if to prove that he can. When you test his strength, he grunts and flexes his arms around you. You won't go anywhere until the bull allows you to.
 
-You feel a bit guilty for the way in which you're enjoying his changes, he's told you before that it's a confusing experience. Regular, gentle Byron is perfect the way he is; but the hormone-fuelled, hyper-masculine Byron is a different experience entirely. You think of it as an experience because you have no choice but to let him be in control of everything.
+You feel a bit guilty for the way in which you're enjoying his changes, he's told you before that it's a confusing feeling. Regular, gentle Byron is perfect the way he is; but the hormone-fuelled, hyper-masculine Byron is a different experience entirely. You think of it as an experience because you have no choice but to let him be in control of everything.
 
 Like when he lifts you off the sofa and carries you off to bed. You don't get to object or set terms here, Byron is making your decisions for you.
 
@@ -96,3 +96,15 @@ Letting his cock fall back against his stomach, you direct your attention to his
 You make sure to coat all of his nuts in your saliva, lapping up as much of him as you can manage. You feel his massive testes move slowly as you handle them. You can't wait to taste more of him, but you'll have to work for your meal.
 
 Against his stomach, Byron's cock is still slowly pulsing. You move around on the bed and straddle Byron's stomach, laying yourself over his bulk so your face is right against his dick.
+
+For a brief moment, you admire his manhood. The veined spire twitches occasionally, letting loose a lazy stream of clear, syrupy precum. You move forward, planting your lips against the gaping slit. You're rewarded with a slow pulse filling your mouth. Hunger grips you as you swallow. Luckily, Byron is more than capable of sating your hunger.
+
+You feel Byron stir beneath you as you slowly work your hands up and down his cock, coaxing more of his pre into your mouth. You suckle gently on the head, rolling your tongue around the fat bell-end. It's difficult, but you manage to wrench open your jaw to let the head pop inside your mouth. After stopping to take a breath, you press on, letting more of Byron's thick shaft enter your mouth. You stop when the head reaches your throat, wanting to savour the moment.
+
+"Looks like someone couldn't wait for breakfast," You hear a rumbling voice from behind, and suddenly a big hand is against the back of your head. Byron holds you steady on his dick. "Well? Don't let me stop you, honey. I know you want all of it." His hand isn't pushing you forward, but it's clear that you can't retreat, either.
+
+You swallow and renew the air in your lung's, then you slowly force your head down. With some difficulty, Byron's massive shaft enters your throat. For a moment, you feel as if you're going to lose control, but the feeling abates and your face is flush against Byron's nuts.
+
+"Good boy," Byron says, stroking your hair as your throat squeezes his massive cock. "Just stay there until we get rid of this little distraction..." He grasps the plug still embedded in your ass with one hand, while the other keeps your mouth on his dick. He removes the plug so, so slowly. You know the predatory grin he makes as he watches your little hole pulse against the thick toy. Your eyes are watering as the air in your lungs is rapidly vanishing. Finally, he pulls the plug free from your hole and you're free to breathe once more. Byron drops the plug onto the covers beside you as you regain your breath. He doesn't let you pull off completely, his bulbous cockhead is still firmly lodged in your mouth.
+
+You move to swallow his firm shaft once again, and you feel Byron's large hands firmly kneading your ass. His breath is hot against your exposed skin, and you can feel your loose hole ooze a thick drop of cum down your taint. Byron snorts and pushes it back inside with his thumb. You moan as his fingers explore your tenderised hole. His index finger presses gently against your prostate and you go further down on his throbbing cock.

@@ -1,11 +1,17 @@
 
-# Fur goes into extreme heat, human partner is overwhelmed with the reaction
+# Inner Fire
 
 Bull - Byron Matheson
 
 Human - David Hawley
 
 #
+
+*When your boyfriend goes into heat, it's your job to sate his urges.*
+
+*The release of WoW Shadowlands has occupied much of my free time, but after staring at my Tauren for a few hours straight, I knew I needed to take some time to write out exactly what I would let him do to me.*
+
+*Comments, feedback and faves are much appreciated!*
 
 "Starting already, huh?" You say, putting your phone down on the coffee table beside you.
 
@@ -62,3 +68,7 @@ You wonder if your colleagues know why you take a week off every three months. M
 It always hurts at first. You wince as Byron pushes inside you. His jaw is clenched tight, barely keeping himself from slamming in as hard as he can. You whimper and throw your head back as he hilts his cock inside you. His balls lay heavy against your ass, preparing to fill you to bursting. You can't wait to feel that.
 
 "Oh fuck..." You moan as Byron drags his dick all the way out and pushes it inside you again. He leers down at you. The gentle giant is all but gone, the fire is in charge now. He lowers his body onto yours, pinning you to the mattress beneath his bulky frame. Your face is mashed against his chest, the light fur matted with sweat.
+
+You tighten your arms around as much of Byron as you can grasp when he begins to rut into you. His body stays on top of you, he's using only his powerful legs to drive his cock in and out of you. With every thrust, his nuts slap against your buttocks, landing with a heavy thud.
+
+He's got you on the edge from the start, but Byron's unrelenting pace 

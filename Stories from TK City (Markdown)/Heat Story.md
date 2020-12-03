@@ -52,3 +52,13 @@ Then he's on top of you, his fur bristles against your skin as he presses his mu
 His big tongue fills your mouth completely, snaking down to your throat. You feel him reach for something on the nightstand, but you can't look away from him. You hear a bottle open, and moments later you feel a cold, slick sensation against your ass.
 
 Byron grunts in satisfaction as your eyes go wide. Your hole yields to one of his fingers and he pushes it in with ease. You try to gasp but his tongue fills your mouth and throat completely. You can tell that Byron revels in your helplessness, as do you.
+
+He stretches you slowly, making sure you feel every bit of his fingers invade you. All the while he pushes you back against the bed with his other hand. You moan as your body opens for him. The air is thick with his scent, you'll be thoroughly marinated in it over the next few days.
+
+You wonder if your colleagues know why you take a week off every three months. Maybe some of them can smell Byron on you when you get back. They'll know instantly that you've surrendered to the inferno, that you're crying in pleasure while your stronger partner takes what he wants from you. Is that why Gerard, the white German shepherd, always looks weird at you? Does he know what a whore you are? You don't give a fuck. If Byron needs you to be a whore, you'll spread those legs as wide as they can go.
+
+"Ready?" Byron grunts. It's the first word he's uttered in hours. You see him stroke his cock, aiming it straight at your slackened hole. You nod and your body quakes with anticipation of being filled with that magnificent bull cock.
+
+It always hurts at first. You wince as Byron pushes inside you. His jaw is clenched tight, barely keeping himself from slamming in as hard as he can. You whimper and throw your head back as he hilts his cock inside you. His balls lay heavy against your ass, preparing to fill you to bursting. You can't wait to feel that.
+
+"Oh fuck..." You moan as Byron drags his dick all the way out and pushes it inside you again. He leers down at you. The gentle giant is all but gone, the fire is in charge now. He lowers his body onto yours, pinning you to the mattress beneath his bulky frame. Your face is mashed against his chest, the light fur matted with sweat.

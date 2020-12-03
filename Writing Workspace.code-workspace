@@ -5,6 +5,6 @@
 		}
 	],
 	"settings": {
-		"typewriterScrollMode.enable": true
+		"typewriterScrollMode.enable": false
 	}
 }

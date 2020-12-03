@@ -39,3 +39,16 @@ When the heat took hold, it all faded. He became brash, full of confidence borde
 
 "I'd like to think you're a man of many sides," You say, relaxing in his arms as he nuzzles the side of your face. Out of the corner of your eye, you can see the tip of his horns puncturing the sofa cushions. Again.
 
+You don't move much for the rest of the afternoon and evening. You can feel the fire building within Byron. He gets quiet and possessive, holding you tight as if to prove that he can. When you test his strength, he grunts and flexes his arms around you. You won't go anywhere until the bull allows you to.
+
+You feel a bit guilty for the way in which you're enjoying his changes, he's told you before that it's a confusing experience. Regular, gentle Byron is perfect the way he is; but the hormone-fuelled, hyper-masculine Byron is a different experience entirely. You think of it as an experience because you have no choice but to let him be in control of everything.
+
+Like when he lifts you off the sofa and carries you off to bed. You don't get to object or set terms here, Byron is making your decisions for you.
+
+He's slow with you, for now. Even as the flames burn ever brighter inside him, Byron knows that you need time to adjust. He strips you naked, wordlessly regarding your smaller, smooth body laid prone on the bed. What a foolish creature you are, to lay yourself bare before the predator like this.
+
+Then he's on top of you, his fur bristles against your skin as he presses his muzzle against your mouth. He doesn't close his eyes as he makes out with you, keeping you fixed in his gaze. Your arms are passively around his thick neck whilst his big hands grope your body. His breath is like a rockslide when his hands reach the small of your back. You can see the lust in his eyes as he considers how to best violate you. You're so small to him, a little plaything that eagerly waits to be used.
+
+His big tongue fills your mouth completely, snaking down to your throat. You feel him reach for something on the nightstand, but you can't look away from him. You hear a bottle open, and moments later you feel a cold, slick sensation against your ass.
+
+Byron grunts in satisfaction as your eyes go wide. Your hole yields to one of his fingers and he pushes it in with ease. You try to gasp but his tongue fills your mouth and throat completely. You can tell that Byron revels in your helplessness, as do you.

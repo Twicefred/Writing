@@ -71,4 +71,28 @@ It always hurts at first. You wince as Byron pushes inside you. His jaw is clenc
 
 You tighten your arms around as much of Byron as you can grasp when he begins to rut into you. His body stays on top of you, he's using only his powerful legs to drive his cock in and out of you. With every thrust, his nuts slap against your buttocks, landing with a heavy thud.
 
-He's got you on the edge from the start, but Byron's unrelenting pace 
+He's got you on the edge from the start, but Byron's unrelenting pace brings you quick toward your climax. You pant against his chest, tongue catching droplets of his heady sweat with every breath you take. Your legs cramp as Byron's mammoth cock flattens your prostate. The bull doesn't even flinch as you scream in orgasm. Your abused hole flutters around his enormity as you spill your seed between your bodies.
+
+"Byron, please..." You moan out. You don't even mean anything in particular by it, you just repeat his name over and over as he uses you.
+
+Finally, you feel his breaths quicken and his body tenses up. He holds you even tighter, your flushed face against his pillowy pectorals. He groan as one of his nipples slip into your mouth and you roll your tongue against the fat nub. His thrusts come deeper, more purposeful. Then, he slams his manhood into you one last time, grinding his hips against yours.
+
+Byron roars in triumph as he breeds you. He is an alpha who has claimed his mate, the rush of thick seed pouring into you brands you as his bitch forever. Your mouth lies open as wave after wave of gloopy, potent bull cum floods your innards. You can't see it, but you know how your belly is swelling up from being filled.
+
+He stays hilted inside you as his orgasm abates, not once letting you move. The beast needs to fill and mark his little mate.
+
+When the flow finally ceases, Byron rolls over to his side, pulling you with him. His cock twitches inside you still and you know he won't go soft for a long while yet.
+
+Your face ends up resting on his bicep, one of his nipples still in your mouth. Neither of you say anything.
+
+--
+
+You don't remember at which part you blacked out, but you wake up before Byron does. Your face is pressed against his crotch. It takes you a moment to get your bearings, but you're soon acclimated to your position. When you move, you feel a sting in your ass, followed by a throb of warm pleasure. When he finished with you, Byron had shoved a plug into you. Not an ounce of his cum was going to waste, he would make you take it all. You move a hand back, grasping at the rubber handle. Closing your eyes, you breathe in the scent of sex and cum in the air. Your toes curl as you press gently on the plug, pushing it against your prostate. You know something that would feel even better than the toy, but you'll get it in due course.
+
+Even though he's sound asleep, Byron's cock is rock hard. It throbs angrily against his stomach, drooling a slow stream of thick precum into his fur. Slowly, you encircle the behemoth with your hands. This is your only chance of taking your time to enjoy him. Once he wakes up, he's in charge. You cup your hand below his cock head, catching the fat globs of pre that ooze out. You bring it to your mouth, letting his sweet essence coat your palate. He tastes masculine, hinting at his power.
+
+Letting his cock fall back against his stomach, you direct your attention to his swollen nuts. You lower your face between Byron's thick legs and stick your tongue out to run over one of his balls. The air is so thick you could cut it with a knife. You shudder and plant your face against his huge scrotum, greedily breathing in his potent musky scent. You can barely heft one of his nuts in one hand, and you slowly bathe his sac with your tongue. Miraculously, he still hasn't awoken. Ordinarily, Byron would be embarrassed to see you worship his body like this, but you know he wouldn't mind it now.
+
+You make sure to coat all of his nuts in your saliva, lapping up as much of him as you can manage. You feel his massive testes move slowly as you handle them. You can't wait to taste more of him, but you'll have to work for your meal.
+
+Against his stomach, Byron's cock is still slowly pulsing. You move around on the bed and straddle Byron's stomach, laying yourself over his bulk so your face is right against his dick.

@@ -83,7 +83,11 @@ He stays hilted inside you as his orgasm abates, not once letting you move. The 
 
 When the flow finally ceases, Byron rolls over to his side, pulling you with him. His cock twitches inside you still and you know he won't go soft for a long while yet.
 
-Your face ends up resting on his bicep, one of his nipples still in your mouth. Neither of you say anything.
+Your face ends up resting on his bicep, one of his nipples still in your mouth. Neither of you say anything. His hands run slowly over your body, his bicep slowly flexes against your head as he touches you. You let his nipple slip from your mouth, looking up at his face. His gaze is stern, full of desire. Only the limited constraints of every male's physique is holding him back from ravaging you again.
+
+It doesn't take long for him to recover, and this time he rolls you over onto your stomach. Briefly, his cock slides out of your ass and you feel the thick globs of his cum seep out. Byron snorts and pushes his seed back inside you with his cock. You groan as he enters you again, feeling your body open gladly for him.
+
+And then he begins anew. You moan in wanton lust as he spears you again and again. Only the sounds of your whorish groans and the slapping of flesh against damp fur can be heard in the dark room. You've got a long night ahead of you.
 
 --
 
@@ -133,8 +137,26 @@ The first slug of scalding hot cum is like a bullet to your stomach. You can see
 
 He pulls back, allowing you to taste him fully. His cum is thick and gloopy, and so amazingly warm. You swallow it gladly, and he rewards you with more in an instant. Your hunger is gone, replaced only with sweet contentment. For a solid minute, you drink from him. At the end, his spurts are smaller and less frequent, letting you savour his rich offering before you swallow. His big hands gently massage your throat as you swallow, letting you know he's satisfied with your performance.
 
-Your mouth is sore from being forced open, but you can't bring yourself to let go of his manhood. He never goes fully soft, it's just not quite as steely hard all the time. After a while, you feel a piece of blunt rubber against your hole. Byron pushes the plug back into you, patting the handle to make sure it's secure in place. You're happily filled up
+Your mouth is sore from being forced open, but you can't bring yourself to let go of his manhood. He never goes fully soft, it's just not quite as steely hard all the time. After a while, you feel a piece of blunt rubber against your hole. Byron pushes the plug back into you, patting the handle to make sure it's secure in place. You're happily filled to the brim. You know there'll be more to come later, but for now you're perfectly content.
+
+Byron moves you around after a while, pulling you up to his face. Streaks of cum and saliva cover your face, and he gently wipes them off. You suck on his fingers and he smiles at you. The fire burns bright, but it can warm you as well.
+
+You make out slowly. You hold onto his horns and he sits up with you in his lap, hugging you to his burly chest. Your belly is pleasantly full with his seed and he rubs your body possessively.
+
+When you leave bed he carries you in his arms, he only reluctantly sets you down when he digs through the fridge for something to eat.
+
+You sit in his lap while he eats breakfast. You're not hungry, but he feeds you some pieces of fruit and strokes your face affectionately. It's a small reprieve from the onslaught soon to continue.
+
+When he finishes, he carries you back to your bedroom. All the windows are closed and the curtains are drawn, it feels like being carried off to a wild beast's den. Soon, you're beneath him again, where you belong.
+
+He's hard again, and he makes you beg for his cock. You exhaust every plea you can think of, praising his overwhelming strength and grandeur. Byron exults in your desperation, he knows he owns you. The beast has claimed his mate, and he's never going to let you go.
+
+And so the next five days pass. You reek of cum and sex, your voice hoarse as Byron forces himself on you again and again. He alternates between feral beast and tender dominance. He makes you lick the sweat from his body and thank him for the privilege. You sob in tortured pleasure as Byron forces you to orgasm again and again. When it isn't his monolith cock, he restrains you on the bed and milks your prostate until you beg him to stop. His ravenous desire to breed is matched only by his need to grind you down to a dumb fucktoy that can't do more than take cock and be thankful for it.
 
 --
 
-You sit in his lap while he eats breakfast. You're not very hungry, but he feeds you some pieces of fruit and strokes your face affectionately. It's a small reprieve from the onslaught soon to continue.
+"How are you feeling?" Byron asks, caressing your sore body as you rest on top of him. The flames have gradually died down and he's coming back to his normal self.
+
+"I'm all good," You say. Your voice is raspy and hoarse, like you're recovering from a bad cold. Byron looks mildly embarrassed by the state you're in, but he smiles when you nuzzle your face against his neck. He holds you gently, combing your tangled hair with his big fingers.
+
+You fall asleep on top of him. His strong arms are warm around you. It feels right to be held and protected. The beast has claimed his mate, and you couldn't be more satisfied with your fate.

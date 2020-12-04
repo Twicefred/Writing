@@ -9,7 +9,7 @@ Human - David Hawley
 
 *When your boyfriend goes into heat, it's your job to sate his urges.*
 
-*The release of WoW Shadowlands has occupied much of my free time, but after staring at my buff Tauren for a few hours straight, I knew I needed to take some time to write out exactly what I would let him do to me.*
+*The release of WoW Shadowlands has occupied much of my free time, but after staring at my buff Tauren for hours on end, I knew I needed to take some time to write out exactly what I would let him do to me. I hope you enjoy!*
 
 *Comments, feedback and faves are much appreciated!*
 
@@ -97,7 +97,7 @@ You make sure to coat all of his nuts in your saliva, lapping up as much of him 
 
 Against his stomach, Byron's cock is still slowly pulsing. You move around on the bed and straddle Byron's stomach, laying yourself over his bulk so your face is right against his dick.
 
-For a brief moment, you admire his manhood. The veined spire twitches occasionally, letting loose a lazy stream of clear, syrupy precum. You move forward, planting your lips against the gaping slit. You're rewarded with a slow pulse filling your mouth. Hunger grips you as you swallow. Luckily, Byron is more than capable of sating your hunger.
+For a brief moment, you admire his manhood. The veined spire twitches occasionally, letting loose a lazy stream of clear, syrupy precum. You move forward, planting your lips against the gaping slit. You're rewarded with a slow pulse filling your mouth. Hunger grips you as you swallow. Luckily, Byron is more than capable of sating your need.
 
 You feel Byron stir beneath you as you slowly work your hands up and down his cock, coaxing more of his pre into your mouth. You suckle gently on the head, rolling your tongue around the fat bell-end. It's difficult, but you manage to wrench open your jaw to let the head pop inside your mouth. After stopping to take a breath, you press on, letting more of Byron's thick shaft enter your mouth. You stop when the head reaches your throat, wanting to savour the moment.
 
@@ -113,3 +113,28 @@ Byron fingers you slowly as you suck his dick. Your mouth is rich with his flavo
 
 His tongue runs slowly around your loose hole. He pushes you down further on his dick and rubs little circles on your prostate with his finger. Your own member, completely ignored, is hard between your bodies. Byron knows that you're so much more eager to blow him when he denies you the release he himself takes freely.
 
+Byron sets a measured pace, pulling your head up and down his stiff cock. You feel every vein as he uses your throat. He gives you little words of encouragement when you swallow around his dick, telling you how good you're doing. It feels nice to obey him. His fur is soft and warm beneath you. It barely masks his hard musculature, veiling the terrifying power he could wield if he chose to.
+
+You go down all the way on his dick, feeling your throat stretch around his manhood. Byron scissors his fingers in and out of your hole, pressing down on your prostate to reward you. He holds your head down fully as he fingers you. You're just a cocksleeve for him to use. He adds a third finger to your ass, murmuring sweet nothings to you as you squirm against him.
+
+You can't hold your breath for much longer, but you endure as long as you can. Byron rhythmically pushes his fingers inside you, holding your body still on top of him. Warm flutters erupt in your body when he leans forward to run his tongue around your balls. He handles you expertly, rolling your nuts around his mouth.
+
+Then at last, he releases your smooth sac from his mouth and pistons his fingers inside you. You whimper around his cock as he milks your orgasm from you. Your seed runs from your hard cock in a slow, continuous stream. It's a warm, pacifying feeling of being completely used. Your flushed face is still impaled with Byron's dick and his hand gently caresses your head.
+
+When Byron finally lets you pull your head up, your breath is short and ragged. His fingers are still inside you, never ceasing his stimulation. The fire drives him to breed his mate, but he makes sure you're rendered helpless and obedient first.
+
+"Didn't that feel good?" He croons and plants a wet, smacking kiss on your butt. You gasp and close your eyes as he continues to finger you, all the while he keeps telling you how good you are for submitting to him. "Open up for me," He prompts and bucks his hips toward your open mouth. His cock slips back in and you immediately swallow a mouthful of his sweet precum. "You're such a good boy for me, I'll fill you just the way you want."
+
+Your eyes are wet with tears as he shoves his dick into your throat. It takes all your willpower not to gag as he fucks your face like a toy. Saliva and precum spill from your mouth, messing up his fur and smearing all over your face. Byron breaths quickly, grunting with every exhalation as he mashes your face against his pelvis. You can't think of a world beyond this moment, beyond the bull owning you completely.
+
+When you feel like you can't take anymore, Byron fully buries his dick in your throat and holds you still. His hand covers the back of your head completely. Your jaw aches and your throat stretches even further as his volcanic climax approaches.
+
+The first slug of scalding hot cum is like a bullet to your stomach. You can see his pendulous balls draw tight as his cock throbs inside you. Wave after wave goes straight into your belly, filling you with an amazing, addictive warmth. This is what it was all for, this moment. You're a piece of meat for Byron to defile and fill as he pleases and you couldn't be happier about that.
+
+He pulls back, allowing you to taste him fully. His cum is thick and gloopy, and so amazingly warm. You swallow it gladly, and he rewards you with more in an instant. Your hunger is gone, replaced only with sweet contentment. For a solid minute, you drink from him. At the end, his spurts are smaller and less frequent, letting you savour his rich offering before you swallow. His big hands gently massage your throat as you swallow, letting you know he's satisfied with your performance.
+
+Your mouth is sore from being forced open, but you can't bring yourself to let go of his manhood. He never goes fully soft, it's just not quite as steely hard all the time. After a while, you feel a piece of blunt rubber against your hole. Byron pushes the plug back into you, patting the handle to make sure it's secure in place. You're happily filled up
+
+--
+
+You sit in his lap while he eats breakfast. You're not very hungry, but he feeds you some pieces of fruit and strokes your face affectionately. It's a small reprieve from the onslaught soon to continue.

@@ -1,7 +1,7 @@
 
 # Inner Fire
 
-Bull - Byron Matheson - 
+Bull - Byron Matheson
 
 Human - David Hawley
 

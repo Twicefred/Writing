@@ -1,5 +1,5 @@
 
-# Pastoral - Patrician
+# Innocent Blue
 
 Old houses on the countryside, summer innocence but freed from naïveté, long evenings on the front porch listening to the birds. The sound of crickets in the night. Going for a swim in the old sandstone quarry at night.
 
@@ -31,5 +31,19 @@ Characters:
 
 Synopsis: After the death of Mona, Francis's mother, him and his fiancé Ricard visit the fox's childhood home that he has inherited. The house hasn't been inhabited for half a year, and the return of childhood memories and familiar surroundings weigh heavily on them. The story is about coping with and overcoming loss, and facing parts of the past that you might not wish to return to, even if in hindsight you might think differently of them.
 
-Chapter 1:
+## Chapter 1
+
     Francis and Ricard arrive at Francis's childhood home in the countryside. With his mother having passed away, Francis has inherited the house and land. The house is surrounded by forest and farmland. Nearby is an abandoned quarry that has since flooded, a spot where Francis and his big sister Patricia used to go swimming when they were young. The nearest neighbours are a farmer and his wife 10 minutes away by car, though they were never close to the family.
+    The two spend the car ride talking about Francis's memories of the place, and later explore the house together.
+    Their plan is to spend a week there, but it's quickly becoming clear that a deeply emotional place is bringing about conversations and situations that test their resolve as a couple.
+</br>
+</br>
+
+## Chapter 2
+
+    Ricard spends the day exploring the house and garden. He spends considerable time trying to access the attic, but the door is locked. Meanwhile, Francis drives to get groceries at the store an hour away.
+    While Francis is away, Ricard finds an old photo album containing childhood pictures of Francis and his family. Tucked in behind one of the photos is an even older picture of Mona and Francis's father. The photograph is torn and only Mona's face is visible. Nevertheless, it yields some clues as to the nature of Francis's father. Without internet access however, they don't have many ways to do research. The two resolve to find the key to the attic, or break down the door if they can't find it within a day or two.
+
+## Chapter 3
+
+    Francis finds the key to the attic when he knocks over a vase in Mona's sunroom. They carry several boxes down to the living room and dig through the contents. Much of it is mundane, but some of it conjures powerful memories. In the very back is a box of Mona's personal things. The two debate leaving it unopened, but Ricard reasons that Mona would want them to take care of her belongings and keepsakes. Inside is the torn off corner of a picture, with the face of Francis's father. 

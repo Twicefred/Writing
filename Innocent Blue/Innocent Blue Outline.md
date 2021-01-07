@@ -30,7 +30,7 @@ About 15 minutes away by bicycle is an abandoned limestone quarry. It has long s
 
     Mona Barr - Red Fox. Francis's deceased mother. Mona was close to both her children, but due to living far away they didn't meet very often. While visiting friends in a nearby village, Mona suffered a heart attack and died in the hospital shortly after. Patricia was with her at the end, but despite driving through the night, Francis didn't make it until the day after.
 
-## Synopsis 
+## Synopsis
 
     After the death of Mona, Francis's mother, him and his fiancé Ricard visit the fox's childhood home that he has inherited. The house hasn't been inhabited for half a year, and the return of childhood memories and familiar surroundings weigh heavily on them. The story is about coping with and overcoming loss, and facing parts of the past that you might not wish to return to, even if in hindsight you might think differently of them.
 

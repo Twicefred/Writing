@@ -5,9 +5,9 @@ Old houses on the countryside, summer innocence but freed from naïveté, long e
 
 Setting: Old house in the countryside. Inland, continental European landscape. Robust oak trees and rapeseed fields.
 
-The house is as much a character as Francis and Ricard. It is an old wooden villa, painted yellow with white accents. Due to age and general neglect, the house is in some decline, with flaking paint and creaking floorboards. Still, it is in good condition and would look as good as new with some light renovations.
-The house has two floors and an attic. On the first floor is the living room, kitchen, dining room and Mona's indoor garden and sunroom. Mona was a passionate gardener, and kept a garden full of fruits and herbs for use in cooking. Her indoor garden was for flowers and delicate plants from further south.
-The living room has Mona's favourite rocking chair and a small TV. A large chintz sofa sits along one wall, next to a gramophone and a shelf of old records. A cheap chandelier hangs in the middle.
+The house is as much a character as Francis and Ricard. It is an old wooden villa, painted yellow with white accents. Due to age and general neglect, the house is in some decline, with flaking paint and creaking floorboards. Still, it is in good condition and would look as good as new with some light renovations.</br>
+The house has two floors and an attic. On the first floor is the living room, kitchen, dining room and Mona's indoor garden and sunroom. Mona was a passionate gardener, and kept a garden full of fruits and herbs for use in cooking. Her indoor garden was for flowers and delicate plants from further south.</br>
+The living room has Mona's favourite rocking chair and a small TV. A large chintz sofa sits along one wall, next to a gramophone and a shelf of old records. A cheap chandelier hangs in the middle.</br>
 The kitchen and dining room are adjoined. The kitchen is spacious with a large stove and a very old refrigerator that makes loud noises in the night.
 
 The second floor has the master bedroom, and Francis's and Patricia's old bedrooms. Patricia's bedroom was converted into a room for Mona's painting and other hobbies, while Francis's became a guest room. Francis and Ricard choose to sleep in the guest room, finding the master bedroom a weird place to sleep.
@@ -18,7 +18,8 @@ The house is surrounded by a large garden. Mona kept fruit trees and an herb gar
 
 About 15 minutes away by bicycle is an abandoned limestone quarry. It has long since been flooded, and is a perfect spot for bathing. The water has filtered through the stone and is a bright, tropical blue. The quarry is surrounded by oak forest, and only a few abandoned buildings lay nearby from the time that the quarry was active.
 
-Characters:
+## Characters
+
     Francis Barr - Red Fox. Francis is an ambitious, career-focused person. He works as a corporate realtor, specialising in office space for large corporations. Due to the nature of his work, he is often consumed totally for months at a time, during which he has little time for other concerns. Francis enjoys his work, but laments the fact that he loses himself in it.
         Francis is more of a "dry" personality than his bohemian partner, though he isn't afraid to meet Ricard on even terms. After finishing a large deal and securing a promotion, he is forced by his boss to take a vacation, which prompts the visit to Mona's house.
 
@@ -29,15 +30,15 @@ Characters:
 
     Mona Barr - Red Fox. Francis's deceased mother. Mona was close to both her children, but due to living far away they didn't meet very often. While visiting friends in a nearby village, Mona suffered a heart attack and died in the hospital shortly after. Patricia was with her at the end, but despite driving through the night, Francis didn't make it until the day after.
 
-Synopsis: After the death of Mona, Francis's mother, him and his fiancé Ricard visit the fox's childhood home that he has inherited. The house hasn't been inhabited for half a year, and the return of childhood memories and familiar surroundings weigh heavily on them. The story is about coping with and overcoming loss, and facing parts of the past that you might not wish to return to, even if in hindsight you might think differently of them.
+## Synopsis 
+
+    After the death of Mona, Francis's mother, him and his fiancé Ricard visit the fox's childhood home that he has inherited. The house hasn't been inhabited for half a year, and the return of childhood memories and familiar surroundings weigh heavily on them. The story is about coping with and overcoming loss, and facing parts of the past that you might not wish to return to, even if in hindsight you might think differently of them.
 
 ## Chapter 1
 
     Francis and Ricard arrive at Francis's childhood home in the countryside. With his mother having passed away, Francis has inherited the house and land. The house is surrounded by forest and farmland. Nearby is an abandoned quarry that has since flooded, a spot where Francis and his big sister Patricia used to go swimming when they were young. The nearest neighbours are a farmer and his wife 10 minutes away by car, though they were never close to the family.
     The two spend the car ride talking about Francis's memories of the place, and later explore the house together.
     Their plan is to spend a week there, but it's quickly becoming clear that a deeply emotional place is bringing about conversations and situations that test their resolve as a couple.
-</br>
-</br>
 
 ## Chapter 2
 
@@ -47,3 +48,17 @@ Synopsis: After the death of Mona, Francis's mother, him and his fiancé Ricard 
 ## Chapter 3
 
     Francis finds the key to the attic when he knocks over a vase in Mona's sunroom. They carry several boxes down to the living room and dig through the contents. Much of it is mundane, but some of it conjures powerful memories. In the very back is a box of Mona's personal things. The two debate leaving it unopened, but Ricard reasons that Mona would want them to take care of her belongings and keepsakes. Inside is the torn off corner of a picture, with the face of Francis's father. 
+
+## Chapter 4
+
+    Ricard receives a phone call from his boss at the newspaper. The company has been sold to an international hedge fund and he's part of a round of layoffs. Francis does his best to comfort him, but they end up at each other's throats over the situation. Ricard feels humiliated and inadequate now that he doesn't bring them a source of income. Francis, who doesn't care himself and is happy to support them both, doesn't help by not understanding and wanting (understandably) to focus on the fact that he can now find out who his father is. The two sleep in separate rooms for the first time since they got engaged. As night falls, a thunderstorm rages outside.
+
+## Chapter 5
+
+    Ricard drives to get groceries while Francis stays behind in the house. On the way, the car breaks down. Ricard is unfamiliar with the area, and can't see anything but forest and wheat fields around him. Begrudgingly, he calls Francis to help him. Francis rides over on his bicycle and they walk to the nearest gas station. Over the hour long walk, they first argue and then reconcile. Ricard is genuinely happy that Francis is finally getting some clues to his father, and Francis understands that Ricard is having a difficult time dealing with the loss of his job, and having to leave the newspaper he's dedicated years to.
+    Together, they resolve to do better to understand each other. The two hold hands and enter the gas station together.
+    When they arrive back at the house, 
+
+## Chapter 6
+
+    .

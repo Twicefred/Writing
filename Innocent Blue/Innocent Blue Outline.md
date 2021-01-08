@@ -22,9 +22,11 @@ About 15 minutes away by bicycle is an abandoned limestone quarry. It has long s
 
     Francis Barr - Red Fox. Francis is an ambitious, career-focused person. He works as a corporate realtor, specialising in office space for large corporations. Due to the nature of his work, he is often consumed totally for months at a time, during which he has little time for other concerns. Francis enjoys his work, but laments the fact that he loses himself in it.
         Francis is more of a "dry" personality than his bohemian partner, though he isn't afraid to meet Ricard on even terms. After finishing a large deal and securing a promotion, he is forced by his boss to take a vacation, which prompts the visit to Mona's house.
+        Francis loved his sister, but they had a tense relationship due to his work. Patricia thought that he worked too much, something he admits himself. While he hasn't articulated it himself, he is deeply affected by how his work has kept him from being present when both his mother and sister died.
 
-    Ricard Xavier - Human. Ricard is the editor of a struggling newspaper. Though he pours his heart and soul into the business, it is becoming more and more clear that the company will not make it. While their personal livelihoods aren't at stake with Francis earning substantially more, Ricard finds the circumstances difficult. He knows that Francis wants to support them both and is happy to do so, but he cannot shake the feeling that he isn't bringing enough to the table. Ultimately, Ricard is going through loss of a different kind.
+    Ricard Xavier - Human. Ricard is the editor-in-chief of a struggling local newspaper. Though he pours his heart and soul into the business, it is becoming more and more clear that the company will not make it. While their personal livelihoods aren't at stake with Francis earning more than enough for them both, Ricard finds the circumstances difficult. He knows that Francis wants to support them and is happy to do so, but he cannot shake the feeling that he isn't bringing enough to the table. Ultimately, Ricard is going through loss of a different kind.
         Ricard is an artist at heart. He enjoys the finer things in life, and knows to pester Francis into enjoying them with him when the Fox is working too much. He can often be found with a book and an ice cold drink on a summer day, or working on a complicated recipe in the kitchen. Ironically, the loss of his livelihood has presented him with a mountain of free time that he's desperately trying to fill. Arriving at Mona's house, with no internet access or outside stimuli, proves initially difficult.
+        Ricard is an occasional smoker, though he isn't addicted.
 
     Patricia Barr - Red Fox. Francis's older sister who died in a car accident two months after their mother's passing. Patricia took responsibility for their mother's estate, knowing that Francis was seasonally busy with work. She had intended to clean out and sell Mona's old house and split the proceeds with her brother, but died herself before she could complete the process. With her death, the entire estate passes to Francis.
 
@@ -36,9 +38,9 @@ About 15 minutes away by bicycle is an abandoned limestone quarry. It has long s
 
 ## Chapter 1
 
-    Francis and Ricard arrive at Francis's childhood home in the countryside. With his mother having passed away, Francis has inherited the house and land. The house is surrounded by forest and farmland. Nearby is an abandoned quarry that has since flooded, a spot where Francis and his big sister Patricia used to go swimming when they were young. The nearest neighbours are a farmer and his wife 10 minutes away by car, though they were never close to the family.
+    Francis and Ricard arrive at Francis's childhood home in the countryside. With his mother having passed away, Francis has inherited the house and land.
     The two spend the car ride talking about Francis's memories of the place, and later explore the house together.
-    Their plan is to spend a week there, but it's quickly becoming clear that a deeply emotional place is bringing about conversations and situations that test their resolve as a couple.
+    Their plan is to spend a week there, and it's quickly becoming clear that a deeply emotional place is bringing about conversations and situations that test their resolve as a couple.
 
 ## Chapter 2
 

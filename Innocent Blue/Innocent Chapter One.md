@@ -39,7 +39,7 @@ Seemingly endless fields of sunflowers and rye sped past them, only broken up by
 
 Stretched out against the backdrop of grain and shrubs was the old forest. It ran in an unbroken line until an hour away by bicycle where a river bisected the farmland. Francis had spent considerable time there, whittling boats out of pine bark and watching them float downstream.
 
-The road grew rougher as they neared the forest line. No one had bothered to maintain this stretch for years, and it showed in the multitude of holes and stray branches that had fallen onto the roadway. Ricard flicked his sunglasses up off his nose and focused intently on the road. Above, a canopy of leaves shrouded them from the sunlight.
+The road grew rougher as they neared the treeline. No one had bothered to maintain this stretch for years, and it showed in the multitude of holes and stray branches that had fallen onto the roadway. Ricard flicked his sunglasses up off his nose and focused intently on the road. Above, a canopy of leaves shrouded them from the sunlight.
 
 The dirt road carried on for miles through the forest. Even further on was THE TOWN, though new roads had since been built that connected to the freeway, leaving the gravel roads all but abandoned.
 
@@ -55,4 +55,14 @@ Ricard stopped the car. The forest had cleared, leaving them in a natural meadow
 
 "I wonder who Patricia thought she could sell this place to," Francis said, silently walking up behind Ricard. "I don't think even *I* could find a good buyer."
 
-"
+"Surely someone would be interested," Ricard said. His eyes wandered around the garden. The sound of insects and birds was constant, like they'd stumbled upon a secret wildlife choir. "It's beautiful and in good shape. It looks like a fairy tale, Francis."
+
+"It's also remote, and I don't know in how good shape it really is," Francis said. He narrowed his eyes, slowly walking beside Ricard toward the front porch.
+
+"Take off your work glasses for a moment, love," Ricard said, laying an arm around the fox's shoulders. Francis leaned into Ricard's side. "Just because you see an old house in need of repair doesn't mean someone else can't see much more than that."
+
+They reached the wooden porch and climbed the steps up. The floorboards creaked and shifted slightly under their weight. Francis shot Ricard a glance to the effect of 'see what I mean?'. Ricard had to lean down slightly to avoid bumping his head against a multitude of glass trinkets and dreamcatchers that hung from the porch ceiling. The veranda, much like the rest of the house, he suspected, was built for a family of shorter people.
+
+Hesitating for a second, Francis produced a key and unlocked the front door. With Ricard's hand against his back, he swung the door open.
+
+"Home sweet home," Francis said, stepping inside the house. The air inside was cold and damp, despite the summer heat.

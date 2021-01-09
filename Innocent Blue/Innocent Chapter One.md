@@ -19,25 +19,27 @@
 
 ## Chapter Begins
 
-With a cloud of dust trailing behind it, the old Mercedes drove off the asphalt and onto the gravel road. The suspension creaked as the bumps in the road caused the tightly packed trunk to clatter with heavy luggage.
+The old Mercedes drove off the asphalt and onto the gravel road. The suspension creaked as the bumps in the road caused the tightly packed trunk to clatter with heavy luggage.</br>
+Sun-baked fields of grain flew by as rubber tires screeched against seldom-travelled gravel. It was the peak of summer. Rain hadn't come for weeks, causing a cloud of dust to form behind the car as it rolled steadily down the road.
 
-"We should have taken my car instead," Francis said, clutching his phone tight with his paws, lest an especially large pothole caused it to fly out the open window.
+"We should have taken my car instead," Francis said, clutching his phone tight with his paws, lest an especially large pothole caused it to fly out the open window. The seatbelt did little to restrain him in his seat as the roadway buckled beneath them. Francis only hoped he wouldn't have to dig his claws into the leather as he tried to not tumble down to the floor.
 
-"We could have," Ricard replied, hands steady on the steering wheel. "But there's no feeling in it. No soul."
+"We could have," Ricard replied, hands steady on the steering wheel, though his knuckles were bright white in veiled exertion. "But there's no feeling in it. No soul." Ricard's voice strained on the last part. He meant what he said, but even he could sense that a more modern car might have handled the trip with less trouble.
 
-"You're not supposed to 'feel' the road, you're supposed to travel along it," Francis said. He could have elaborated further, but chose to respect his fiancé's concentration. Francis understood Ricard's love for the old car, but he didn't particularly relish riding it.
+"You're not supposed to 'feel' the road, you're supposed to travel along it," Francis said. He could have elaborated further, but chose to respect his fiancé's concentration. Francis understood Ricard's love for the old car, but he didn't always look forward to riding it.
 
-"Either way, when else would I get to drive her?" Ricard said, leaning into a curve and smiling to himself. With his sunglasses, blue linen jacket and carefully unkempt hair, he was the dashing image of a bohemian dandy.
+"Either way, when else would I get to drive her?" Ricard said, leaning into a curve and smiling to himself. With his sunglasses, blue linen jacket and carefully unkempt hair, he was the dashing image of a bohemian dandy. A road trip was really just another runway.
 
 Francis looked at Ricard beside him. He smiled and shook his head.
 
-"Just don't get too busy admiring yourself in the mirror, love," Francis said. He put his phone down. There was almost no cell coverage. For the moment, it was only them and the road.
+"Just don't get too busy admiring yourself in the mirror, love," Francis said. He put his phone down. There was almost no cell coverage. For the moment, it was only them and the road. Only them, and a journey he'd been putting off until there weren't any excuses left for him to make.
 
 Sensing that the road had seemed to smooth out some, Ricard took one hand off the wheel and held it out to his right. Francis smiled and took it, letting Ricard's bigger fingers stroke his soft paw. Francis stretched out in the supple leather seat. Despite it not being a very large car, he couldn't quite reach the floor. '*And he wonders why I prefer driving my own car,*' Francis thought. He swished his tail in momentary annoyance, but banished the notion quickly. He could put up with indulging his fiancé's love for the old hunk of metal, even if it meant his own mild discomfort.
 
 Seemingly endless fields of sunflowers and rye sped past them, only broken up by stretches of oak forest, but Francis began to recognise the sparse few landmarks one could see from the road. He craned his neck out the open window, watching as a familiar landscape began to unfold.
 
-Stretched out against the backdrop of grain and shrubs was the old forest. It ran in an unbroken line until an hour away by bicycle where a river bisected the farmland. Francis had spent considerable time there, whittling boats out of pine bark and watching them float downstream.
+Stretched out against the backdrop of grain and shrubs was the old forest. It ran in an unbroken line until an hour away by bicycle where a river bisected the farmland. His sister had told Francis that the water flowed down from the mountains when it snowed. Francis hadn't questioned her theory, despite the lack of both mountains and snow nearby.</br>
+Patricia had fed Francis a multitude of amusing lies throughout their childhood, and their mother inevitably had to dispel them at some point. Francis had cried when Patricia, voice full of falsified concern, had told him that his tail would fall off if he wet his bed again. In retrospect, it was mildly funny. In the moment, it was only the casual cruelty with which you treat your annoying younger siblings.
 
 The road grew rougher as they neared the treeline. No one had bothered to maintain this stretch for years, and it showed in the multitude of holes and stray branches that had fallen onto the roadway. Ricard flicked his sunglasses up off his nose and focused intently on the road. Above, a canopy of leaves shrouded them from the sunlight.
 
@@ -49,9 +51,9 @@ Ricard slowed down as the forest grew sparser.
 
 Ricard leaned forward and steered the car down the forest path. Grass had grown over much of the roadway, and the tires crept slowly along the ground. Francis held his breath as he saw light ahead.
 
-Ricard stopped the car. The forest had cleared, leaving them in a natural meadow. In the middle, partly obscured by planted trees and tall rose bushes, sat an old wood house. The shutters were open, but it did little to convince anyone that the house was inhabited.
+Ricard stopped the car. The forest had cleared, leaving them in a natural meadow. In the middle, partly obscured by planted trees and tall rose bushes, sat an old wooden house. The shutters were open, but it did little to convince anyone that the house was inhabited.
 
-"Wow," Ricard said, opening the door and stepping out. He stretched and walked slowly toward the house. The path ahead of them was lined by overgrown rose bushes that had spilled over the gravel. He smiled and took a step back as a pleasantly fat bumblebee almost flew into his face. Everywhere around them were the sights of a beloved garden deep in decline.
+"Wow," Ricard said, opening the door and stepping out. He stretched and walked slowly toward the house. The path ahead of them was lined by overgrown rose bushes that had spilled over the gravel. He smiled and took a step back as a pleasantly fat bumblebee flew past his face. Everywhere around them were the sights of a beloved garden deep in decline.
 
 "I wonder who Patricia thought she could sell this place to," Francis said, silently walking up behind Ricard. "I don't think even *I* could find a good buyer."
 
@@ -81,6 +83,8 @@ Ricard leaned against the doorway, observing quietly as Francis elaborated on th
 
 "How do I feel?" Francis turned around. Specks of dust swirled in the air from the sudden appearance of people in the abandoned room. "I've felt better..." He said, casting his gaze down.
 
+Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes in contentment as Ricard brushed his fingers through Francis's soft fur.
+
 --
 
 Mona Barr occupied far more of the room than her short stature should allow. She was everywhere at once, and nowhere was this more apparent than her own kitchen. Francis sat down at the kitchen table and observed as his mother did the dishes, prepared lemonade and watered the plants at the same time as she vividly recounted her latest gardening endeavour. He had offered to help, but she had insisted that he sit down and relax. Apparently, he worked too hard.
@@ -101,11 +105,17 @@ Mona stared intently at her son, paws fidgeting in her lap excitedly. Francis to
 
 "Do you want to see a picture?" He asked. His mother nodded instantly, craning her neck over to see the screen.
 
-The image was of Francis and Ricard at a local beach. Francis knew that just below the picture, Ricard's arms held him up so their faces would be level with the camera. Francis 
+The image was of Francis and Ricard at a local beach. They were right next to each other, faces pressed tight together to fit in the frame. Francis knew that just below the picture, Ricard's arms held him up so their heads would be level with the camera. Francis wouldn't say it openly, but Ricard knew he loved being held that way. Francis wasn't unusually short for a fox, and he could hold his own in any situation thrown at him, but there's a distinct comfort in letting someone else hold you.
+
+"What a handsome man," Mona said, squinting her eyes to get every detail she possibly could out of the picture. There was some surprise in her voice, but not the judgmental or unpleasant kind. She'd always thought her son would choose another fox, not a lanky human who distinctly lacked fur. Mona was long since at peace with not getting any grandchildren. Francis was gay, and Patricia seemed wholly uninterested in procreating. Consequently, it didn't matter much to her what partner her son chose, she had no stake in the matter. She would have liked it if her children had seen the same joy in parenthood as she had, but Mona realised it was rather selfish to expect your children to conform to your expectations of *their* adulthood.
+
+"I love him," Francis said, swiping past more photos of himself and Ricard. 
 
 --
 
-Francis had sold the homes of dead people before. Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, but there weren't any vultures either.
+Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
+
+Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, but there weren't any vultures either.
 
 There's a special kind of loneliness to be found where a deceased person's belongings are left the way they are. Not even the base greed of all sentient beings calling out to anyone.
 

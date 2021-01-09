@@ -65,4 +65,49 @@ They reached the wooden porch and climbed the steps up. The floorboards creaked 
 
 Hesitating for a second, Francis produced a key and unlocked the front door. With Ricard's hand against his back, he swung the door open.
 
-"Home sweet home," Francis said, stepping inside the house. The air inside was cold and damp, despite the summer heat.
+"Home sweet home," Francis said, stepping over the threshold.
+
+The air inside was cold and damp, despite the summer sun. Francis coughed as their footsteps kicked up little clouds of dust from the hall carpet. Ricard walked silently just behind Francis. He felt like he was stepping into an abandoned museum, one dedicated to someone else's memories.
+
+"Pat must have barely gotten started here," Francis said as they stepped into the living room. Ricard flicked a light switch, letting a cheap glass chandelier illuminate the room. "She said she wanted to pack up all the furniture and store it..." Francis trailed off, standing in the centre of the room.
+
+"How do you-" Ricard began, but Francis interrupted him.
+
+"This was her favourite spot," Francis said, pointing to a well-worn chintz armchair. "She always sat there to read." He ran a paw over the cloth, brushing tufts of dust to the floor. "It's the only place in the house where you get evening sun through a window at the right angle."
+
+Ricard leaned against the doorway, observing quietly as Francis elaborated on the virtues of this particular armchair.
+
+"You never answered my question," Ricard said. Francis sighed and fell silent.
+
+"How do I feel?" Francis turned around. Specks of dust swirled in the air from the sudden appearance of people in the abandoned room. "I've felt better..." He said, casting his gaze down.
+
+--
+
+Mona Barr occupied far more of the room than her short stature should allow. She was everywhere at once, and nowhere was this more apparent than her own kitchen. Francis sat down at the kitchen table and observed as his mother did the dishes, prepared lemonade and watered the plants at the same time as she vividly recounted her latest gardening endeavour. He had offered to help, but she had insisted that he sit down and relax. Apparently, he worked too hard.
+
+"They make it so easy nowadays, I almost feel like I'm cheating!" Mona said, twirling around and placing a pitcher of fresh lemonade on the table. "When I was your age, I'd have to find someone to build it all for me, and it would cost a fortune. Now? I just ordered a kit and I can put together a greenhouse on my own!"
+
+Francis nodded along with his mother's enthusiasm. While she went on about how painless mail ordering was, he studied the room. He hadn't visited in over a year, but the room was unchanged.
+
+"Actually, I wanted to tell you something," Francis interjected when Mona paused to take a breath. She sat down next to him at the table, eyes wide and ears forward with interest. Francis smiled and poured a glass of lemonade. "I've met someone, and I think we're going to move in together."
+
+Mona was silent for a moment, then her face cracked into a grin and she lunged at her son.
+
+"My darling boy!" She threw her arms around Francis, who happily returned her embrace. She kissed him on the cheek and pulled back, face sparkling with excitement. "Who is he? What's his name?"
+
+"His name's Ricard," Francis began. His face felt hot. He was happy to share the news, but telling your mother that you've met someone new always makes you feel like a teenager talking about their first crush. "He's a journalist at the *St. Carmen Daily*. We met when they were moving into their new offices downtown."
+
+Mona stared intently at her son, paws fidgeting in her lap excitedly. Francis took a sip of lemonade and took out his phone.
+
+"Do you want to see a picture?" He asked. His mother nodded instantly, craning her neck over to see the screen.
+
+The image was of Francis and Ricard at a local beach. Francis knew that just below the picture, Ricard's arms held him up so their faces would be level with the camera. Francis 
+
+--
+
+Francis had sold the homes of dead people before. Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, but there weren't any vultures either.
+
+There's a special kind of loneliness to be found where a deceased person's belongings are left the way they are. Not even the base greed of all sentient beings calling out to anyone.
+
+"Francis!" Ricard called from out on the porch. The voice was different, but Francis had been called out onto the porch before. Francis put down the papers and walked out the front door. Ricard had finally taken off his sunglasses and had located one of the wicker couches on the veranda. "Come sit down," He said, smiling and holding two filled glasses. Francis stood still for a moment, but the allure of a cold drink in the summer evening was difficult to resist.
+

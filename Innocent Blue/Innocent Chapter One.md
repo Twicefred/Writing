@@ -45,8 +45,6 @@ The road grew rougher as they neared the treeline. No one had bothered to mainta
 
 The dirt road carried on for miles through the forest. Even further on was THE TOWN, though new roads had since been built that connected to the freeway, leaving the gravel roads all but abandoned.
 
-Ricard slowed down as the forest grew sparser.
-
 "Up there, by the birches," Francis said, pointing to a pair of tall birch trees standing out against the oak surroundings. Next to them was a red mailbox and an, if possible, even more primitive dirt road leading further into the woods.
 
 Ricard leaned forward and steered the car down the forest path. Grass had grown over much of the roadway, and the tires crept slowly along the ground. Francis held his breath as he saw light ahead.
@@ -83,7 +81,7 @@ Ricard leaned against the doorway, observing quietly as Francis elaborated on th
 
 "How do I feel?" Francis turned around. Specks of dust swirled in the air from the sudden appearance of people in the abandoned room. "I've felt better..." He said, casting his gaze down.
 
-Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes in contentment as Ricard brushed his fingers through Francis's soft fur.
+Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes in contentment as Ricard brushed his fingers through his plush fur.
 
 --
 
@@ -105,19 +103,29 @@ Mona stared intently at her son, paws fidgeting in her lap excitedly. Francis to
 
 "Do you want to see a picture?" He asked. His mother nodded instantly, craning her neck over to see the screen.
 
-The image was of Francis and Ricard at a local beach. They were right next to each other, faces pressed tight together to fit in the frame. Francis knew that just below the picture, Ricard's arms held him up so their heads would be level with the camera. Francis wouldn't say it openly, but Ricard knew he loved being held that way. Francis wasn't unusually short for a fox, and he could hold his own in any situation thrown at him, but there's a distinct comfort in letting someone else hold you.
+The image was of Francis and Ricard at a local beach. They were right next to each other, faces pressed tight together to fit in the frame. Francis knew that just below the picture, Ricard's arms held him up so their heads would be level with the camera. Francis wouldn't say it out loud, but Ricard knew he loved being held that way.
 
-"What a handsome man," Mona said, squinting her eyes to get every detail she possibly could out of the picture. There was some surprise in her voice, but not the judgmental or unpleasant kind. She'd always thought her son would choose another fox, not a lanky human who distinctly lacked fur. Mona was long since at peace with not getting any grandchildren. Francis was gay, and Patricia seemed wholly uninterested in procreating. Consequently, it didn't matter much to her what partner her son chose, she had no stake in the matter. She would have liked it if her children had seen the same joy in parenthood as she had, but Mona realised it was rather selfish to expect your children to conform to your expectations of *their* adulthood.
+"What a handsome man," Mona said, squinting her eyes to get every detail she possibly could out of the picture. There was some surprise in her voice, but not the judgmental or unpleasant kind. She'd always thought her son would choose another fox, not a lanky human who distinctly lacked fur. Mona was long since at peace with not getting any grandchildren. Francis was gay, and Patricia seemed wholly uninterested in having children. Consequently, it didn't matter much to her what partner her son chose, she had no stake in the matter. She would have liked it if her children had seen the same joy in parenthood as she had, but Mona realised it was rather selfish to expect your children to conform to your expectations of *their* adulthood.
 
-"I love him," Francis said, swiping past more photos of himself and Ricard. 
+Francis swiped past yet more pictures of himself and Ricard, eagerly showing them to his mother. She drank in every one with the same enthusiasm, commenting on what a beautiful couple they made, how tall and handsome Ricard was, and how happy they looked together.
+
+"I love him."
+
+Mona went quiet, looking at Francis. He'd stopped scrolling through his phone and met his mother's gaze.
+
+"I can tell," She said, smiling at him. "You're no great mystery, Francis."
 
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
 
-Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, but there weren't any vultures either.
-
+Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures would descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, but there weren't any vultures either.</br>
 There's a special kind of loneliness to be found where a deceased person's belongings are left the way they are. Not even the base greed of all sentient beings calling out to anyone.
 
-"Francis!" Ricard called from out on the porch. The voice was different, but Francis had been called out onto the porch before. Francis put down the papers and walked out the front door. Ricard had finally taken off his sunglasses and had located one of the wicker couches on the veranda. "Come sit down," He said, smiling and holding two filled glasses. Francis stood still for a moment, but the allure of a cold drink in the summer evening was difficult to resist.
+"Francis!" Ricard called from out on the porch. The voice was different, but Francis had been called out onto the porch before. Francis put down the papers and walked out the front door. Ricard had finally taken off his sunglasses and had located one of the wicker couches on the veranda. "Come sit down," He said, smiling and holding two glasses of clear liquid with ice. Gin, Francis correctly guessed.
 
+After the scorching daytime heat, the evening air was a pleasant change of pace. Francis sat down on the couch and took the drink he was offered. Ricard had known to pack a respectable assortment of beverages. The nearest grocery store was an hour away, and Francis didn't recall their selection to be particularly inspiring.
+
+"I feel like I should have something poignant to say," Francis said. He leaned against Ricard who ran a hand over his head, stroking the soft fur behind his rakish ears. It was all the response he needed.
+
+They each drank from their glass, listening to the sounds around them. Throughout the garden, birds and crickets alike serenaded the arrival of the night.

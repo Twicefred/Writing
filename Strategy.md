@@ -1,4 +1,4 @@
-Strategy
+# Strategy
 
 Ready ideas;
 
@@ -11,4 +11,3 @@ A visit to himbo hooters (or femboy hooters?)
 Big bear biology teacher helps you improve your grades
 
 Hookup / date turns into relationship (cum inflation, size diff story)
-

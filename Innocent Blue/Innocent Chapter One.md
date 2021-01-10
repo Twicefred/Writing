@@ -21,7 +21,7 @@ The sun is beginning to set as they arrive at the house. Francis comments on how
 
 The old Mercedes drove off the asphalt and onto the dirt road. Sun-baked fields of grain flew by as rubber tires screeched against seldom-travelled gravel. It was the peak of summer. Rain hadn't come for weeks, causing a cloud of dust to form behind the car as it rolled steadily down the road.
 
-"We should have taken my car instead," Francis said, clutching his phone tight with his paws, lest an especially large pothole caused it to fly out the open window. The seatbelt did little to restrain him in his seat as the roadway buckled beneath them. Francis only hoped he wouldn't have to dig his claws into the leather as he tried to not tumble down to the floor.
+"We should have taken my car instead," Francis said, clutching his phone tight with his paws, lest an especially large pothole cause it to fly out the open window. The seatbelt did little to restrain him in his seat as the roadway buckled beneath them. Francis only hoped he wouldn't have to dig his claws into the leather as he tried to not tumble down to the floor.
 
 "We could have," Ricard replied, hands steady on the steering wheel, though his knuckles were bright white in veiled exertion. "But there's no feeling in it. No soul." Ricard's voice strained on the last part. He meant what he said, but even he could sense that a more modern car might have handled the trip with less trouble.
 

@@ -71,7 +71,7 @@ The air inside was cold and damp, despite the summer sun. Francis coughed as the
 
 "Pat must have barely gotten started here," Francis said as they stepped into the living room. Ricard flicked a light switch, letting a cheap glass chandelier illuminate the room. "She said she wanted to pack up all the furniture and store it..." Francis trailed off, standing in the centre of the room.
 
-"How do you-" Ricard began, but Francis interrupted him.
+"How are you-" Ricard began, but Francis interrupted him.
 
 "This was her favourite spot," Francis said, pointing to a well-worn chintz armchair. "She always sat there to read." He ran a paw over the cloth, brushing tufts of dust to the floor. "It's the only place in the house where you get evening sun through a window at the right angle."
 
@@ -81,7 +81,7 @@ Ricard leaned against the doorway, observing quietly as Francis elaborated on th
 
 "How do I feel?" Francis turned around. Specks of dust swirled in the air from the sudden appearance of people in the abandoned room. "I've felt better..." He said, casting his gaze down.
 
-Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes in contentment as Ricard brushed his fingers through his plush fur.
+Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes as Ricard brushed his fingers through his plush fur.
 
 --
 
@@ -114,6 +114,7 @@ Francis swiped past yet more pictures of himself and Ricard, eagerly showing the
 Mona went quiet, looking at Francis. It took him a minute to realise that his audience was no longer focused on the images he was showing, but on himself.
 
 "I can tell," Mona said, laying an arm around her son. "You're no great mystery, Francis."
+
 
 --
 

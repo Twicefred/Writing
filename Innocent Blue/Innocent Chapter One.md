@@ -3,9 +3,9 @@
 
 ## Chapter Outline
 
-    Francis and Ricard arrive at Francis's childhood home in the countryside. With his mother having passed away, Francis has inherited the house and land.
-    The two spend the car ride talking about Francis's memories of the place, and later explore the house together.
-    Their plan is to spend a week there, and it's quickly becoming clear that a deeply emotional place is bringing about conversations and situations that test their resolve as a couple.
+Francis and Ricard arrive at Francis's childhood home in the countryside. With his mother having passed away, Francis has inherited the house and land.</br>
+The two spend the car ride talking about Francis's memories of the place, and later explore the house together.</br>
+Their plan is to spend a week there, and it's quickly becoming clear that a deeply emotional place is bringing about conversations and situations that test their resolve as a couple.
 
 ## Scenes
 

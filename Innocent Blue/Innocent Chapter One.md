@@ -115,7 +115,6 @@ Mona went quiet, looking at Francis. It took him a minute to realise that his au
 
 "I can tell," Mona said, laying an arm around her son. "You're no great mystery, Francis."
 
-
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.

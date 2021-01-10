@@ -48,7 +48,7 @@ While Francis is away, Ricard finds an old photo album containing childhood pict
 
 ## Chapter 3
 
-Francis finds the key to the attic when he knocks over a vase in Mona's sunroom. They carry several boxes down to the living room and dig through the contents. Much of it is mundane, but some of it conjures powerful memories. In the very back is a box of Mona's personal things. The two debate leaving it unopened, but Ricard reasons that Mona would want them to take care of her belongings and keepsakes. Inside is the torn off corner of a picture, with the face of Francis's father. 
+Francis finds the key to the attic when he knocks over a vase in Mona's sunroom. They carry several boxes down to the living room and dig through the contents. Much of it is mundane, but some of it conjures powerful memories. In the very back is a box of Mona's personal things. The two debate leaving it unopened, but Ricard reasons that Mona would want them to take care of her belongings and keepsakes. Inside is the torn off corner of a picture, with the face of Francis's father.
 
 ## Chapter 4
 
@@ -61,5 +61,3 @@ Ricard is genuinely happy that Francis is finally getting some clues to his fath
 Together, they resolve to do better to understand each other. The two hold hands and enter the gas station together.
 
 ## Chapter 6
-
-

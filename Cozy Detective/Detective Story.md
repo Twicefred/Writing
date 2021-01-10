@@ -2,8 +2,6 @@
 
 **When a dead body is discovered in the dining room of a vast country mansion, detective Robert Rizzolini is called to the scene to investigate. Using his second-to-none powers of deduction, he cracks the case.**
 
-**I originally wrote this as a weird pornographic detective pastiche, but I ended up cutting out all the horny bits. Something about sex scenes and murder mystery doesn't quite satisfy me.**
-
 # Chapter 1
 
 Maximilian Morganstein closed the front door behind him. Home at last. The entry hall was dark, save for a sliver of moonlight shining through the stained glass windows. It was enough for Maximilian's keen feline eyes, and he strode quietly through to the great hall just adjacent.

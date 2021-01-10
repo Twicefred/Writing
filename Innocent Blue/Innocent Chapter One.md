@@ -19,8 +19,7 @@ The sun is beginning to set as they arrive at the house. Francis comments on how
 
 ## Chapter Begins
 
-The old Mercedes drove off the asphalt and onto the gravel road. The suspension creaked as the bumps in the road caused the tightly packed trunk to clatter with heavy luggage.</br>
-Sun-baked fields of grain flew by as rubber tires screeched against seldom-travelled gravel. It was the peak of summer. Rain hadn't come for weeks, causing a cloud of dust to form behind the car as it rolled steadily down the road.
+The old Mercedes drove off the asphalt and onto the dirt road. Sun-baked fields of grain flew by as rubber tires screeched against seldom-travelled gravel. It was the peak of summer. Rain hadn't come for weeks, causing a cloud of dust to form behind the car as it rolled steadily down the road.
 
 "We should have taken my car instead," Francis said, clutching his phone tight with his paws, lest an especially large pothole caused it to fly out the open window. The seatbelt did little to restrain him in his seat as the roadway buckled beneath them. Francis only hoped he wouldn't have to dig his claws into the leather as he tried to not tumble down to the floor.
 

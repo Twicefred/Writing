@@ -111,9 +111,9 @@ Francis swiped past yet more pictures of himself and Ricard, eagerly showing the
 
 "I love him."
 
-Mona went quiet, looking at Francis. He'd stopped scrolling through his phone and met his mother's gaze.
+Mona went quiet, looking at Francis. It took him a minute to realise that his audience was no longer focused on the images he was showing, but on himself.
 
-"I can tell," She said, smiling at him. "You're no great mystery, Francis."
+"I can tell," Mona said, laying an arm around her son. "You're no great mystery, Francis."
 
 --
 

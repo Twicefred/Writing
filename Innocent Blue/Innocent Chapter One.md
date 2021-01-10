@@ -11,11 +11,11 @@
 
 ### Scene 1
 
-    Francis and Ricard in the car. They are driving through sunny fields with the radio on. Francis laments the fact that his phone can't get internet connection while Ricard drives. The car is an old Mercedes-Benz that Ricard works on in their spare time. They both agree that they should probably have taken Francis's SUV instead, but Ricard doesn't enjoy driving it. Francis points out that the Mercedes is more difficult for him to drive, Ricard makes a joke about Francis's height.
+Francis and Ricard in the car. They are driving through sunny fields with the radio on. Francis laments the fact that his phone can't get internet connection while Ricard drives. The car is an old Mercedes-Benz that Ricard works on in their spare time. They both agree that they should probably have taken Francis's SUV instead, but Ricard doesn't enjoy driving it. Francis points out that the Mercedes is more difficult for him to drive, Ricard makes a joke about Francis's height.
 
 ### Scene 2
 
-    The sun is beginning to set as they arrive at the house. Francis comments on how overgrown it looks. We are given a short overview of the state of the villa. Francis unlocks the front door
+The sun is beginning to set as they arrive at the house. Francis comments on how overgrown it looks. We are given a short overview of the state of the villa. Francis unlocks the front door
 
 ## Chapter Begins
 

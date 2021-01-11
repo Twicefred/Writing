@@ -48,7 +48,7 @@ The dirt road carried on for miles through the forest. Even further on was THE T
 
 Ricard leaned forward and steered the car down the forest path. Grass had grown over much of the roadway, and the tires crept slowly along the ground. Francis held his breath as he saw light ahead.
 
-Ricard stopped the car. The forest had cleared, leaving them in a natural meadow. In the middle, partly obscured by planted trees and tall rose bushes, sat an old wooden house. The shutters were open, but it did little to convince anyone that the house was inhabited.
+Ricard stopped the car. The forest had cleared, leaving them in a natural meadow. In the middle, partly obscured by planted trees and tall rose bushes, sat an old yellow wooden house. The shutters were open, but it did little to convince anyone that the house was inhabited.
 
 "Wow," Ricard said, opening the door and stepping out. He stretched and walked slowly toward the house. The path ahead of them was lined by overgrown rose bushes that had spilled over the gravel. He smiled and took a step back as a pleasantly fat bumblebee flew past his face. Everywhere around them were the sights of a beloved garden deep in decline.
 
@@ -68,6 +68,10 @@ Hesitating for a second, Francis produced a key and unlocked the front door. Wit
 
 The air inside was cold and damp, despite the summer sun. Francis coughed as their footsteps kicked up little clouds of dust from the hall carpet. Ricard walked silently just behind Francis. He felt like he was stepping into an abandoned museum, one dedicated to someone else's memories.
 
+A small selection of shoes lined the hallway leading into the rest of the house. Most of them were practical footwear, made for rough terrain, but some were of finer make with ornate clasps and heels. They didn't seem to have seen as much use.
+
+The walls were covered in little paintings and photographs. Ricard squinted to make out the details, but in the dim lighting he couldn't see much of them.
+
 "Pat must have barely gotten started here," Francis said as they stepped into the living room. Ricard flicked a light switch, letting a cheap glass chandelier illuminate the room. "She said she wanted to pack up all the furniture and store it..." Francis trailed off, standing in the centre of the room.
 
 "How are you-" Ricard began, but Francis interrupted him.
@@ -81,6 +85,8 @@ Ricard leaned against the doorway, observing quietly as Francis elaborated on th
 "How do I feel?" Francis turned around. Specks of dust swirled in the air from the sudden appearance of people in the abandoned room. "I've felt better..." He said, casting his gaze down.
 
 Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes as Ricard brushed his fingers through his plush fur.
+
+"Well, I'm glad I get to be here with you," Ricard said, pulling Francis with him to sit down on a sofa by the window. The cushions sighed as they sat down. Ricard reached up behind them and opened the window, letting the summer breeze replace the stale air. White lace curtains fluttered in the soft wind, casting shadows across the room.
 
 --
 
@@ -112,13 +118,13 @@ Francis swiped past yet more pictures of himself and Ricard, eagerly showing the
 
 Mona went quiet, looking at Francis. It took him a minute to realise that his audience was no longer focused on the images he was showing, but on himself.
 
-"I can tell," Mona said, laying an arm around her son. "You're no great mystery, Francis."
+"I can tell," Mona said, laying an arm around her son. "You're no great mystery, sweetheart. I'm so glad you're happy."
 
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
 
-Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures would descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, but there weren't any vultures either.</br>
+Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures would descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, and there weren't any vultures either.</br>
 There's a special kind of loneliness to be found where a deceased person's belongings are left the way they are. Not even the base greed of all sentient beings calling out to anyone.
 
 "Francis!" Ricard called from out on the porch. The voice was different, but Francis had been called out onto the porch before. Francis put down the papers and walked out the front door. Ricard had finally taken off his sunglasses and had located one of the wicker couches on the veranda. "Come sit down," He said, smiling and holding two glasses of clear liquid with ice. Gin, Francis correctly guessed.
@@ -128,3 +134,5 @@ After the scorching daytime heat, the evening air was a pleasant change of pace.
 "I feel like I should have something poignant to say," Francis said. He leaned against Ricard who ran a hand over his head, stroking the soft fur behind his rakish ears. It was all the response he needed.
 
 They each drank from their glass, listening to the sounds around them. Throughout the garden, birds and crickets alike serenaded the arrival of the night.
+
+"Well, you got your wish for a road trip," Francis said,

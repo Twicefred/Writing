@@ -60,7 +60,7 @@ Ricard stopped the car. The forest had cleared, leaving them in a natural meadow
 
 "Take off your work glasses for a moment, love," Ricard said, laying an arm around the fox's shoulders. Francis leaned into Ricard's side. "Just because you see an old house in need of repair doesn't mean someone else can't see much more than that."
 
-They reached the wooden porch and climbed the steps up. The floorboards creaked and shifted slightly under their weight. Francis shot Ricard a glance to the effect of 'see what I mean?'. Ricard had to lean down slightly to avoid bumping his head against a multitude of glass trinkets and dreamcatchers that hung from the porch ceiling. The veranda, much like the rest of the house, he suspected, was built for a family of shorter people.
+They reached the wooden porch and climbed the steps up. The floorboards creaked and shifted slightly under their weight. Francis shot Ricard a glance to the effect of 'see what I mean?'. Ricard had to lean down to avoid bumping his head against a multitude of glass trinkets and dreamcatchers that hung from the porch ceiling. The veranda, much like the rest of the house, he suspected, was built for a family of shorter people.
 
 Hesitating for a second, Francis produced a key and unlocked the front door. With Ricard's hand against his back, he swung the door open.
 
@@ -87,6 +87,16 @@ Ricard leaned against the doorway, observing quietly as Francis elaborated on th
 Ricard approached him, leaning down and wrapping his arms around the fox. Francis pressed himself against the taller human, closing his eyes as Ricard brushed his fingers through his plush fur.
 
 "Well, I'm glad I get to be here with you," Ricard said, pulling Francis with him to sit down on a sofa by the window. The cushions sighed as they sat down. Ricard reached up behind them and opened the window, letting the summer breeze replace the stale air. White lace curtains fluttered in the soft wind, casting shadows across the room.
+
+"I wasn't so sure about coming back here," Francis said. He looked around the cramped room. His mother's tendency to fill every available surface with decorations and misplaced keepsakes had only gotten stronger in her old age. Piles of books dotted the side tables in the room; little vases with dried flowers were perched precariously on top.
+
+"Why? I didn't think you had bad memories from here?"
+
+"I don't. Not really anyway," Francis said. Ricard looked silently at him. "I don't know, it's just weird."
+
+--
+
+
 
 --
 
@@ -135,4 +145,10 @@ After the scorching daytime heat, the evening air was a pleasant change of pace.
 
 They each drank from their glass, listening to the sounds around them. Throughout the garden, birds and crickets alike serenaded the arrival of the night.
 
-"Well, you got your wish for a road trip," Francis said,
+"I know I'm repeating myself, but this looks like a fairy tale," Ricard said, gesturing vaguely to the garden in front of them. "I feel like I'm going to blink and suddenly realise I was watching a movie instead."
+
+"Better not blink, then," Francis said, clenching his jaw as he swallowed an ice-cold shot of gin.
+
+"What's the matter, Francis?" Ricard said, reaching back and putting his glass on the windowsill behind them. "You can tell me about your thoughts."
+
+"Patricia could have sold our childhood home and I wouldn't have been at all involved. I would never have seen this place again."

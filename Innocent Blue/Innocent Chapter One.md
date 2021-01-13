@@ -155,4 +155,16 @@ They each drank from their glass, listening to the sounds around them. Throughou
 
 "We've been over this, love," Ricard said. "You can't blame yourself for things that are out of your control. It wasn't your fault. None of it."
 
-"It doesn't always feel that way to me," Francis said.
+"It doesn't always feel that way to me."
+
+"That doesn't mean that those thoughts are true."
+
+-skip-
+
+"Really?" Francis said, tilting his head.
+
+"Yep. It's for your own good," Ricard said, smiling at his fiancés annoyed face.
+
+"Fine, I guess," Francis said, struggling to keep his steely face as Ricard leaned down and lifted him into his arms. "But I fail to see how this is for my own good. I have the same amount of legs that you do, shouldn't I get to use them?"
+
+"You make a good point," Ricard said, cradling the smaller fox in his embrace. "But you're also the perfect size for me to hold, which I think is the more important characteristic here."

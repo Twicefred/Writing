@@ -151,4 +151,8 @@ They each drank from their glass, listening to the sounds around them. Throughou
 
 "What's the matter, Francis?" Ricard said, reaching back and putting his glass on the windowsill behind them. "You can tell me about your thoughts."
 
-"Patricia could have sold our childhood home and I wouldn't have been at all involved. I would never have seen this place again."
+"Patricia could have sold our childhood home and I wouldn't have been at all involved. I would never have seen this place again." A moth fluttered past them both, enthralled by the dim porch lights.
+
+"We've been over this, love," Ricard said. "You can't blame yourself for things that are out of your control. It wasn't your fault. None of it."
+
+"It doesn't always feel that way to me," Francis said.

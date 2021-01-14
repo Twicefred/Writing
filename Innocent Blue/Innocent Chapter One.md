@@ -166,7 +166,15 @@ Mona went quiet, looking at Francis. It took him a minute to realise that his au
 
 They ate their toast in the sun room, opposite the kitchen. Francis recalled it had originally been something different, but Mona had contracted a cousin to tear out a wall and build a greenhouse extension on the side of the house. Patricia and he had given their mother endless grief about how cold it got in the winter if they didn't keep a fire going constantly, but their concerns had fallen on deaf ears.
 
+Francis had to admit, though, it was a nice place during the summer.
 
+"I've counted, how many plants do you think there are in this room?" Ricard said, leaning back in a ragged armchair.
+
+"Zero live ones, that part is easy at least," Francis said. "Maybe fifty or so?"
+
+"Fifty-eight, good guess," Ricard said, plucking a dried leaf off a small ficus tree next to him. "You always said your mother enjoyed gardening, but caring for all this must have been a full-time endeavour."
+
+"There isn't much else to do out here," Francis said, looking out over the garden through the windows. The fruit trees were in full bloom, bathing the scene in white and pink blossoms. "Unless you just love being alone and isolated, you have to pick up gardening or some other hobby to stay sane."
 
 --
 

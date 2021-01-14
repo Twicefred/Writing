@@ -176,6 +176,12 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "There isn't much else to do out here," Francis said, looking out over the garden through the windows. The fruit trees were in full bloom, bathing the scene in white and pink blossoms. "Unless you just love being alone and isolated, you have to pick up gardening or some other hobby to stay sane."
 
+"Lucky you handle loneliness so well."
+
+"You joke, but I wish I had inherited some of that. Patricia got all those genes. I don't think she enjoyed anyone's company as much as her own."
+
+
+
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
@@ -213,6 +219,6 @@ They each drank from their glass, listening to the sounds around them. Throughou
 
 "Fine, I guess," Francis said, struggling to keep his steely face as Ricard leaned down and lifted him into his arms. "But I fail to see how this is for my own good. I have the same amount of legs that you do, shouldn't I get to use them?"
 
-"You make a good point," Ricard said, cradling the smaller fox in his embrace. "But you're also the perfect size for me to hold, which I think is the more important characteristic here."
+"You make a good point," Ricard said, cradling the smaller fox in his embrace. "But you're also the perfect size for me to carry, which I think is the more important characteristic here."
 
 

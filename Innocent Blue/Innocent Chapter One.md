@@ -94,9 +94,41 @@ Ricard approached him, leaning down and wrapping his arms around the fox. Franci
 
 "I don't. Not really anyway," Francis said. Ricard looked silently at him. "I don't know, it's just weird."
 
+"Weird in a bad way or some other way?"
+
+"Are you my psychologist now?" Francis looked up at Ricard who laughed back at him.
+
+"I'll be whatever you need me to be," Ricard said.
+
 --
 
+All things considered, Francis thought, the kitchen was in good shape. Ever the gentleman, Ricard had insisted that he carry all the groceries inside while Francis figured out whether any of the kitchen appliances still worked.
 
+Thankfully, Patricia had managed to throw out all the perishable food from the fridge and pantry, so there wasn't much cleanup needed. When Ricard had carted in the food they'd brought with them, they were left with their own provisions and an assortment of questionable fruit preserves and jams that had escaped Patricia's cleaning.
+
+"Do you think these are still good?" Ricard said, holding up a jar of orange marmalade to the light. "I remember Mona gave me a bunch of these when she came to visit, but I never got to eat all of them."
+
+"She was ever fond of unloading food on people," Francis said, turning the kitchen tap and wincing at the rust brown water that rushed forth. "It's charming when you get them a few times a year, but me and Pat had to actually eat all the stuff she couldn't give away. I've had more toast with marmalade than you can imagine."
+
+"Too much of a good thing?"
+
+"*Way* too much of a good thing," Francis said. With the tap running to clear the water, he turned his attention to the refrigerator. It was old and bulky, like a bathtub turned on its side and stapled to the wall. Francis wouldn't be surprised if it held up a significant part of the house, it had been there so long as he could remember.
+
+Francis flicked a dusty switch on the side and the fridge clattered to life. Ricard looked at it, wide-eyed.
+
+"It probably won't explode," Francis said, smiling at his fiancé.
+
+"That thing is a monstrosity," Ricard said, approaching the way-too-loud appliance. "Yet it has an undeniable charm."
+
+"That could describe many things in this house," Francis said. He picked up the jar of marmalade that Ricard had put down on the kitchen counter. "Did you remember to bring a loaf of bread?"
+
+"Do you actually want to eat that?" Ricard said, turning in surprise as Francis struggled with the lid.
+
+"Yeah, of course I do," Francis said, gritting his teeth with effort before giving up and handing the jar to Ricard. "I loosened it for you." He grinned as Ricard opened it without much exertion.
+
+"Is the toaster here as old as everything else?" Ricard asked, producing a loaf of white bread from their grocery bags.
+
+"
 
 --
 
@@ -132,6 +164,12 @@ Mona went quiet, looking at Francis. It took him a minute to realise that his au
 
 --
 
+They ate their toast in the sun room, opposite the kitchen. Francis recalled it had originally been something different, but Mona had contracted a cousin to tear out a wall and build a greenhouse extension on the side of the house. Patricia and he had given their mother endless grief about how cold it got in the winter if they didn't keep a fire going constantly, but their concerns had fallen on deaf ears.
+
+
+
+--
+
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
 
 Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures would descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, and there weren't any vultures either.</br>
@@ -151,13 +189,13 @@ They each drank from their glass, listening to the sounds around them. Throughou
 
 "What's the matter, Francis?" Ricard said, reaching back and putting his glass on the windowsill behind them. "You can tell me about your thoughts."
 
-"Patricia could have sold our childhood home and I wouldn't have been at all involved. I would never have seen this place again." A moth fluttered past them both, enthralled by the dim porch lights.
+"Patricia could have sold our childhood home and I wouldn't have been at all involved. I would never have seen this place again." A moth fluttered past them both, enthralled by the dim porch lights. "She even asked me to be a part of it and I declined. What was I thinking?"
 
 "We've been over this, love," Ricard said. "You can't blame yourself for things that are out of your control. It wasn't your fault. None of it."
 
 "It doesn't always feel that way to me."
 
-"That doesn't mean that those thoughts are true."
+"That doesn't mean that those thoughts are any more true," Ricard said. His eyes wandered to the open trunk of the car in the driveway. He wanted to refill both their glasses, but this seemed an inopportune moment. "I know how this goes. You blame yourself for working too hard, and then you bury yourself in more work to stop those feelings." Francis looked up at him and began to answer, but Ricard cut him off. "I'm not calling you out just to be unpleasant, I'm trying to get you to understand that this guilt isn't helping anyone."
 
 -skip-
 
@@ -168,3 +206,5 @@ They each drank from their glass, listening to the sounds around them. Throughou
 "Fine, I guess," Francis said, struggling to keep his steely face as Ricard leaned down and lifted him into his arms. "But I fail to see how this is for my own good. I have the same amount of legs that you do, shouldn't I get to use them?"
 
 "You make a good point," Ricard said, cradling the smaller fox in his embrace. "But you're also the perfect size for me to hold, which I think is the more important characteristic here."
+
+

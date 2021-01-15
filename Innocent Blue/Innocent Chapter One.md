@@ -126,10 +126,6 @@ Francis flicked a dusty switch on the side and the fridge clattered to life. Ric
 
 "Yeah, of course I do," Francis said, gritting his teeth with effort before giving up and handing the jar to Ricard. "I loosened it for you." He grinned as Ricard opened it without much exertion.
 
-"Is the toaster here as old as everything else?" Ricard asked, producing a loaf of white bread from their grocery bags.
-
-"
-
 --
 
 Mona Barr occupied far more of the room than her short stature should allow. She was everywhere at once, and nowhere was this more apparent than her own kitchen. Francis sat down at the kitchen table and observed as his mother did the dishes, prepared lemonade and watered the plants at the same time as she vividly recounted her latest gardening endeavour. He had offered to help, but she had insisted that he sit down and relax. Apparently, he worked too hard.
@@ -192,7 +188,9 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "I could have, if she had asked," Francis said. "But she wouldn't have. She was too stubborn for that. You know the amount of times we offered to help her only for her to refuse. I couldn't have forced her to accept something she didn't want."
 
-"Well, it's her loss," Ricard said. 
+"Well, it's her loss."
+
+"And now it's my loss. *Our* loss," Francis said. He stood up, slowly pacing the room.
 
 --
 
@@ -221,7 +219,13 @@ They each drank from their glass, listening to the sounds around them. Throughou
 
 "It doesn't always feel that way to me."
 
-"That doesn't mean that those thoughts are any more true," Ricard said. His eyes wandered to the open trunk of the car in the driveway. He wanted to refill both their glasses, but this seemed an inopportune moment. "I know how this goes. You blame yourself for working too hard, and then you bury yourself in more work to stop those feelings." Francis looked up at him and began to answer, but Ricard cut him off. "I'm not calling you out just to be unpleasant, I'm trying to get you to understand that this guilt isn't helping anyone."
+"That doesn't mean that those thoughts are true," Ricard said. His eyes wandered to the open trunk of the car in the driveway. He wanted to refill both their glasses, but it seemed an inopportune moment. "I know how this goes. You blame yourself for working too hard, and then you bury yourself in more work to stop those feelings." Francis looked up at him and began to answer, but Ricard cut him off. "I'm not calling you out just to be unpleasant, I'm trying to get you to understand that this guilt isn't helping anyone."
+
+They both were silent, eyes drifting over the garden. It was a moment where neither wanted to say something, but they both knew that eventually the silence had to be broken.
+
+"I'll try," Francis said. Ricard smiled at him.
+
+"That's all I ask."
 
 -skip-
 
@@ -233,4 +237,6 @@ They each drank from their glass, listening to the sounds around them. Throughou
 
 "You make a good point," Ricard said, cradling the smaller fox in his embrace. "But you're also the perfect size for me to carry, which I think is the more important characteristic here."
 
+"That's highly subjective," Francis said, resting his head against Ricard's shoulder. He smelled vaguely of fabric softener and bergamot cologne.
 
+"Not to mention you enjoy it," Ricard said, rubbing his cheek against the top of Francis's head.

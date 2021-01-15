@@ -104,7 +104,7 @@ Ricard approached him, leaning down and wrapping his arms around the fox. Franci
 
 All things considered, Francis thought, the kitchen was in good shape. Ever the gentleman, Ricard had insisted that he carry all the groceries inside while Francis figured out whether any of the kitchen appliances still worked.
 
-Thankfully, Patricia had managed to throw out all the perishable food from the fridge and pantry, so there wasn't much cleanup needed. When Ricard had carted in the food they'd brought with them, they were left with their own provisions and an assortment of questionable fruit preserves and jams that had escaped Patricia's cleaning.
+Thankfully, Patricia had managed to throw out all the perishable food from the fridge and pantry, so there wasn't much cleaning needed. When Ricard had carted in the food they'd brought with them, they were left with their own provisions and an assortment of questionable fruit preserves and jams that had escaped Patricia's cleaning.
 
 "Do you think these are still good?" Ricard said, holding up a jar of orange marmalade to the light. "I remember Mona gave me a bunch of these when she came to visit, but I never got to eat all of them."
 

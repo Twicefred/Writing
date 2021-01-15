@@ -180,7 +180,19 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "You joke, but I wish I had inherited some of that. Patricia got all those genes. I don't think she enjoyed anyone's company as much as her own."
 
+"Then why did she insist on selling? You'd think she would be thrilled to make this place her own if she enjoyed being on her own so much."
 
+"Because mum never wrote a will," Francis said. "When she died, the estate was divided between me and Pat. We ended up with joint ownership of the house. Either we sell it or she would have to buy my share from me."
+
+"And I imagine your sister needed the money," Ricard said, looking at Francis. His fiancé was by all accounts a successful man, Patricia had been less fortunate.
+
+"She did," Francis said and sighed.
+
+"Isn't there a third option? Couldn't you have given her your share of the house?"
+
+"I could have, if she had asked," Francis said. "But she wouldn't have. She was too stubborn for that. You know the amount of times we offered to help her only for her to refuse. I couldn't have forced her to accept something she didn't want."
+
+"Well, it's her loss," Ricard said. 
 
 --
 

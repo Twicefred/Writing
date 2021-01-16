@@ -188,10 +188,6 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "I could have, if she had asked," Francis said. "But she wouldn't have. She was too stubborn for that. You know the amount of times we offered to help her only for her to refuse. I couldn't have forced her to accept something she didn't want."
 
-"Well, it's her loss."
-
-"And now it's my loss. *Our* loss," Francis said. He stood up, slowly pacing the room.
-
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.

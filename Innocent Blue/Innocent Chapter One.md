@@ -180,7 +180,7 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "Because mum never wrote a will," Francis said. "When she died, the estate was divided between me and Pat. We ended up with joint ownership of the house. Either we sell it or she would have to buy my share from me."
 
-"And I imagine your sister needed the money," Ricard said, looking at Francis. His fiancé was by all accounts a successful man, Patricia had been less fortunate.
+"And I imagine your sister needed the money," Ricard said, looking at Francis. His fiancé was by all accounts a successful man. Patricia had been less fortunate.
 
 "She did," Francis said and sighed.
 
@@ -195,7 +195,7 @@ Francis had sold the homes of dead people before. Every case had been different,
 Patricia had made all the paperwork ready, and to his eyes it was all prim and proper. But this wasn't any ordinary house. Any old widow can tumble down the steps one day and without much delay, the vultures would descend to pick apart the estate for anything of value. That, curiously, hadn't been the case here. There wasn't much of economical value to be found, and there weren't any vultures either.</br>
 There's a special kind of loneliness to be found where a deceased person's belongings are left the way they are. Not even the base greed of all sentient beings calling out to anyone.
 
-"Francis!" Ricard called from out on the porch. The voice was different, but Francis had been called out onto the porch before. Francis put down the papers and walked out the front door. Ricard had finally taken off his sunglasses and had located one of the wicker couches on the veranda. "Come sit down," He said, smiling and holding two glasses of clear liquid with ice. Gin, Francis correctly guessed.
+"Francis!" Ricard called from out front. The voice was different, but Francis had been called out onto the porch before. Francis put down the papers and walked out the front door. Ricard had finally taken off his sunglasses and had located one of the wicker couches on the veranda. "Come sit down," He said, smiling and holding two glasses of clear liquid with ice. Gin, Francis correctly guessed.
 
 After the scorching daytime heat, the evening air was a pleasant change of pace. Francis sat down on the couch and took the drink he was offered. Ricard had known to pack a respectable assortment of beverages. The nearest grocery store was an hour away, and Francis didn't recall their selection to be particularly inspiring.
 
@@ -231,8 +231,18 @@ They both were silent, eyes drifting over the garden. It was a moment where neit
 
 "Fine, I guess," Francis said, struggling to keep his steely face as Ricard leaned down and lifted him into his arms. "But I fail to see how this is for my own good. I have the same amount of legs that you do, shouldn't I get to use them?"
 
-"You make a good point," Ricard said, cradling the smaller fox in his embrace. "But you're also the perfect size for me to carry, which I think is the more important characteristic here."
+"You make a good point," Ricard said, cradling the smaller fox in his embrace. "But if I wasn't supposed to carry you, then why are you the perfect size for me to do so?"
 
 "That's highly subjective," Francis said, resting his head against Ricard's shoulder. He smelled vaguely of fabric softener and bergamot cologne.
 
-"Not to mention you enjoy it," Ricard said, rubbing his cheek against the top of Francis's head.
+"Not to me, it's not," Ricard said, rubbing his cheek against the top of Francis's head. "You also enjoy it." Francis scoffed but pushed his snout against Ricard's throat, breathing in the familiar scent.
+
+"I made the bed in the guest room," Francis said, directing Ricard through the darkened house.
+
+"Either you're banishing me to a separate bed, or you don't want to desecrate your mother's bedroom," Ricard said, smiling gleefully at Francis.
+
+"Keep at it and I might just choose the former."
+
+Ricard carried Francis into the guest room, lighting the dim ceiling lamp as they entered. Mona had never had many guests, so Ricard guessed that this was the least used room in the house. As tends to be the case with guest rooms, it was decorated with the wall art that Mona had bought but didn't particularly like.
+
+"

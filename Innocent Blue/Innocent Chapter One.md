@@ -245,4 +245,16 @@ They both were silent, eyes drifting over the garden. It was a moment where neit
 
 Ricard carried Francis into the guest room, lighting the dim ceiling lamp as they entered. Mona had never had many guests, so Ricard guessed that this was the least used room in the house. As tends to be the case with guest rooms, it was decorated with the wall art that Mona had bought but didn't particularly like.
 
-"
+"This used to be my room," Francis said, looking around as Ricard sat him down on the bed.
+
+--
+
+"You think too much, Francis," Ricard said, pulling the covers over them.
+
+"Maybe," Francis whispered, letting Ricard pull him close.
+
+"You definitely do," Ricard said, cradling Francis's head against his neck. "You're such a sweetheart, but you need to get out of your own head sometimes."
+
+Francis didn't reply, he'd already closed his eyes. Ricard held him tight, running his fingers through the fox's bright red fur. All wrapped up and relaxed, Ricard felt like he was holding a large stuffed animal. He sighed and watched Francis's calm face.
+
+"I love you," Ricard whispered, planting a kiss on top of Francis's head. He got a low mumble in response and smiled as 

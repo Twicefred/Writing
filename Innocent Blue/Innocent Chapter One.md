@@ -188,6 +188,8 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "I could have, if she had asked," Francis said. "But she wouldn't have. She was too stubborn for that. You know the amount of times we offered to help her only for her to refuse. I couldn't have forced her to accept something she didn't want."
 
+"No, she would have been offended by that," Ricard said. Francis stared straight ahead in mild annoyance. His sister's vagaries had never failed to set his teeth on edge.
+
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
@@ -239,7 +241,7 @@ They both were silent, eyes drifting over the garden. It was a moment where neit
 
 "I made the bed in the guest room," Francis said, directing Ricard through the darkened house.
 
-"Either you're banishing me to a separate bed, or you don't want to desecrate your mother's bedroom," Ricard said, smiling gleefully at Francis.
+"Either you're banishing me to sleep separately, or you don't want to desecrate your mother's bedroom," Ricard said, smiling gleefully at Francis.
 
 "Keep at it and I might just choose the former."
 

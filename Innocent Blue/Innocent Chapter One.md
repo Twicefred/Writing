@@ -259,4 +259,4 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 Francis didn't reply, he'd already closed his eyes. Ricard held him tight, running his fingers through the fox's bright red fur. All wrapped up and relaxed, Ricard felt like he was holding a large stuffed animal. He sighed and watched Francis's calm face.
 
-"I love you," Ricard whispered, planting a kiss on top of Francis's head. He got a low mumble in response and smiled as 
+"I love you," Ricard whispered, planting a kiss on top of Francis's head. He got a low mumble in response and smiled as

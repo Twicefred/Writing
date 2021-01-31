@@ -9,14 +9,6 @@ Their plan is to spend a week there, and it's quickly becoming clear that a deep
 
 ## Scenes
 
-### Scene 1
-
-Francis and Ricard in the car. They are driving through sunny fields with the radio on. Francis laments the fact that his phone can't get internet connection while Ricard drives. The car is an old Mercedes-Benz that Ricard works on in their spare time. They both agree that they should probably have taken Francis's SUV instead, but Ricard doesn't enjoy driving it. Francis points out that the Mercedes is more difficult for him to drive, Ricard makes a joke about Francis's height.
-
-### Scene 2
-
-The sun is beginning to set as they arrive at the house. Francis comments on how overgrown it looks. We are given a short overview of the state of the villa. Francis unlocks the front door
-
 ## Chapter Begins
 
 The old Mercedes drove off the asphalt and onto the dirt road. Sun-baked fields of grain flew by as rubber tires screeched against seldom-travelled gravel. It was the peak of summer. Rain hadn't come for weeks, causing a cloud of dust to form behind the car as it rolled steadily down the road.
@@ -247,7 +239,13 @@ They both were silent, eyes drifting over the garden. It was a moment where neit
 
 Ricard carried Francis into the guest room, lighting the dim ceiling lamp as they entered. Mona had never had many guests, so Ricard guessed that this was the least used room in the house. As tends to be the case with guest rooms, it was decorated with the wall art that Mona had bought but didn't particularly like.
 
-"This used to be my room," Francis said, looking around as Ricard sat him down on the bed.
+"This used to be my room," Francis said, looking around as Ricard sat him down on the bed. "I wouldn't try it now, but I used to be able to climb through the window and get out." He jumped off the bed and walked over to the window. The moon stood high in the night sky. Waxing crescent.
+
+"You think I could do it?" Ricard asked, walking up behind Francis. It didn't look like the most daunting climb, but the state of the house made it a risky idea.
+
+"The nearest hospital is two hours away, and I can't drive your car," Francis said, holding on to the hem of Ricard's shirt as he leaned out the window. "But by all means, go ahead and break your neck if you want to."
+
+"Fair enough," Ricard said, stepping back and sitting down on the bed. 
 
 --
 

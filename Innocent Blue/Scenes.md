@@ -1,6 +1,14 @@
 
 # Cut Scenes
 
+## The News 1
+
+Francis sat back and smiled as the meeting ended. His boss gave him a wink and flashed a grin as he escorted their latest clients out of the conference room. With all the paperwork finalised, Francis had successfully shepherded a major furniture retailer to a flashy new corporate HQ by the waterfront.
+
+--
+
+
+
 ## Hospital Scene 1
 
 Francis slammed the car door behind him and hurried toward the hospital entrance. He'd parked across two spaces, but that wasn't on his mind. He stomped his paws against the snowy ground, cursing the slow automatic doors. The inside was empty save for a few unfortunate souls waiting for an appointment.

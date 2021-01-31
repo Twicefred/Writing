@@ -245,7 +245,7 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 "The nearest hospital is two hours away, and I can't drive your car," Francis said, holding on to the hem of Ricard's shirt as he leaned out the window. "But by all means, go ahead and break your neck if you want to."
 
-"Fair enough," Ricard said, stepping back and sitting down on the bed. 
+"Fair enough," Ricard said, stepping back and sitting down on the bed.
 
 --
 

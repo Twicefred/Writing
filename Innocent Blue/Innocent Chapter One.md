@@ -90,7 +90,11 @@ Ricard approached him, leaning down and wrapping his arms around the fox. Franci
 
 "Are you my psychologist now?" Francis looked up at Ricard who laughed back at him.
 
-"I'll be whatever you need me to be," Ricard said.
+"I'd like to think I'm a good listener," Ricard said. "But I think you're better off with a trained professional."
+
+The light breeze from the open window kicked up little clouds of dust all over the room and sent whispers through the frail, dried flower petals dotting the space around the many vases.
+
+
 
 --
 
@@ -182,6 +186,8 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "No, she would have been offended by that," Ricard said. Francis stared straight ahead in mild annoyance. His sister's vagaries had never failed to set his teeth on edge.
 
+"Either way, it's my problem now. *Our* problem."
+
 --
 
 Francis had sold the homes of dead people before. Every case had been different, but the basic procedure never differed much. He would offer condolences and relate to whatever anecdote the family told him. Ultimately, it didn't matter much to his business.
@@ -245,7 +251,9 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 "The nearest hospital is two hours away, and I can't drive your car," Francis said, holding on to the hem of Ricard's shirt as he leaned out the window. "But by all means, go ahead and break your neck if you want to."
 
-"Fair enough," Ricard said, stepping back and sitting down on the bed.
+"Fair enough," Ricard said, stepping back and sitting down on the bed. He unbuttoned his shirt and threw it over an armchair in the corner of the room, winking at Francis whose gaze was frozen right on him. "See something you like?"
+
+
 
 --
 

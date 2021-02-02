@@ -94,7 +94,9 @@ Ricard approached him, leaning down and wrapping his arms around the fox. Franci
 
 The light breeze from the open window kicked up little clouds of dust all over the room and sent whispers through the frail, dried flower petals dotting the space around the many vases.
 
+"Not to mention it's a bad habit to bother your loved ones with your personal issues," Francis said.
 
+"You say that like you're full of them," Ricard said, 
 
 --
 
@@ -136,7 +138,7 @@ Mona was silent for a moment, then her face cracked into a grin and she lunged a
 
 "My darling boy!" She threw her arms around Francis, who happily returned her embrace. She kissed him on the cheek and pulled back, face sparkling with excitement. "Who is he? What's his name?"
 
-"His name's Ricard," Francis began. His face felt hot. He was happy to share the news, but telling your mother that you've met someone new always makes you feel like a teenager talking about their first crush. "He's a journalist at the *St. Carmen Daily*. We met when they were moving into their new offices downtown."
+"His name's Ricard," Francis began. His face felt warm. He was happy to share the news, but telling your mother that you've met someone new always makes you feel like a teenager talking about their first crush. "He's a journalist at the *St. Carmen Daily*. We met when they were moving into their new offices downtown."
 
 Mona stared intently at her son, paws fidgeting in her lap excitedly. Francis took a sip of lemonade and took out his phone.
 
@@ -144,7 +146,7 @@ Mona stared intently at her son, paws fidgeting in her lap excitedly. Francis to
 
 The image was of Francis and Ricard at a local beach. They were right next to each other, faces pressed tight together to fit in the frame. Francis knew that just below the picture, Ricard's arms held him up so their heads would be level with the camera. Francis wouldn't say it out loud, but Ricard knew he loved being held that way.
 
-"What a handsome man," Mona said, squinting her eyes to get every detail she possibly could out of the picture. There was some surprise in her voice, but not the judgmental or unpleasant kind. She'd always thought her son would choose another fox, not a lanky human who distinctly lacked fur. Mona was long since at peace with not getting any grandchildren. Francis was gay, and Patricia seemed wholly uninterested in having children. Consequently, it didn't matter much to her what partner her son chose, she had no stake in the matter. She would have liked it if her children had seen the same joy in parenthood as she had, but Mona realised it was rather selfish to expect your children to conform to your expectations of *their* adulthood.
+"What a handsome man," Mona said, squinting her eyes to get every detail she possibly could out of the picture. There was some surprise in her voice, but not the judgmental or unpleasant kind. She'd always thought her son would choose another fox, not a lanky human who distinctly lacked fur. Mona was long since at peace with not getting any grandchildren. Francis was gay, and Patricia seemed wholly uninterested in having children. Consequently, it didn't matter much to her what partner her son chose, as long as they were happy. She would have liked it if her children had seen the same joy in parenthood as she had, but Mona realised it was rather selfish to expect your children to conform to your expectations of *their* adulthood.
 
 Francis swiped past yet more pictures of himself and Ricard, eagerly showing them to his mother. She drank in every one with the same enthusiasm, commenting on what a beautiful couple they made, how tall and handsome Ricard was, and how happy they looked together.
 
@@ -187,6 +189,12 @@ Francis had to admit, though, it was a nice place during the summer.
 "No, she would have been offended by that," Ricard said. Francis stared straight ahead in mild annoyance. His sister's vagaries had never failed to set his teeth on edge.
 
 "Either way, it's my problem now. *Our* problem."
+
+"I can think of worse problems to have," Ricard said. "Besides, are you so sure it truly *is* a problem? It's a beautiful house, and to my knowledge it's neither in danger of collapse or haunted."
+
+--
+
+
 
 --
 
@@ -251,7 +259,7 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 "The nearest hospital is two hours away, and I can't drive your car," Francis said, holding on to the hem of Ricard's shirt as he leaned out the window. "But by all means, go ahead and break your neck if you want to."
 
-"Fair enough," Ricard said, stepping back and sitting down on the bed. He unbuttoned his shirt and threw it over an armchair in the corner of the room, winking at Francis whose gaze was frozen right on him. "See something you like?"
+"Fair enough," Ricard said, stepping back and sitting down on the bed. He unbuttoned his shirt and threw it over an armchair in the corner of the room, winking at Francis whose gaze was frozen right on him.
 
 
 

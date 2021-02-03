@@ -96,7 +96,13 @@ The light breeze from the open window kicked up little clouds of dust all over t
 
 "Not to mention it's a bad habit to bother your loved ones with your personal issues," Francis said.
 
-"You say that like you're full of them," Ricard said, 
+"You say that like you're full of them."
+
+"You don't think I am?"
+
+Ricard tilted his head, looking at Francis beside him.
+
+"-
 
 --
 
@@ -190,7 +196,19 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "Either way, it's my problem now. *Our* problem."
 
-"I can think of worse problems to have," Ricard said. "Besides, are you so sure it truly *is* a problem? It's a beautiful house, and to my knowledge it's neither in danger of collapse or haunted."
+"I can think of worse problems to have," Ricard said. "Besides, are you so sure it truly *is* a problem? It's a beautiful house, and to my knowledge it's neither in danger of collapse nor haunted."
+
+"Ricard, I know you mean well," Francis said, leaning forward in the armchair. "But there is no way we're packing up and moving out here. I'm putting the kibosh on that idea right now. There's just no way we can do that."
+
+"I'm not at all suggesting we move here," Ricard said, striking a conciliatory tone. Francis suspected that he'd come to revise that statement sooner or later. "But surely there's a middle ground between rearranging our lives completely and just selling off the place."
+
+"Do you have any idea how much maintenance a house like this requires?" Francis hopped out of his chair, pacing the room. "It would almost be less work to move here full time than to keep it as a summer house or something. We'd end up paying a small fortune to renovate it, and I'm not sure how often we'd even come here."
+
+"So you're saying it would be better to move here?"
+
+"What did I just say about that?" Francis glared at Ricard who grinned back at him.
+
+"Then what do you want to do?
 
 --
 

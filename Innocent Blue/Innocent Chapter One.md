@@ -208,7 +208,7 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "What did I just say about that?" Francis glared at Ricard who grinned back at him.
 
-"Then what do you want to do?
+"Then what do you want to do about it?
 
 --
 

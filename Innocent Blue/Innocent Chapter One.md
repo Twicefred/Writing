@@ -198,7 +198,7 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "I can think of worse problems to have," Ricard said. "Besides, are you so sure it truly *is* a problem? It's a beautiful house, and to my knowledge it's neither in danger of collapse nor haunted."
 
-"Ricard, I know you mean well," Francis said, leaning forward in the armchair. "But there is no way we're packing up and moving out here. I'm putting the kibosh on that idea right now. There's just no way we can do that."
+"Ricard, I know you mean well," Francis said, leaning forward in the armchair. "But there is no way we're packing up and moving out here. I'm putting the kibosh on that idea before it gets anywhere. There's just no way we can do that."
 
 "I'm not at all suggesting we move here," Ricard said, striking a conciliatory tone. Francis suspected that he'd come to revise that statement sooner or later. "But surely there's a middle ground between rearranging our lives completely and just selling off the place."
 
@@ -208,7 +208,7 @@ Francis had to admit, though, it was a nice place during the summer.
 
 "What did I just say about that?" Francis glared at Ricard who grinned back at him.
 
-"Then what do you want to do about it?
+"Then what *do* you want to do about it? If it was as simple as selling the house and being done with it, then why are you calling it a problem?"
 
 --
 
@@ -271,7 +271,7 @@ They both were silent, eyes drifting over the garden. It was a moment where neit
 
 Ricard carried Francis into the guest room, lighting the dim ceiling lamp as they entered. Mona had never had many guests, so Ricard guessed that this was the least used room in the house. As tends to be the case with guest rooms, it was decorated with the wall art that Mona had bought but didn't particularly like.
 
-"This used to be my room," Francis said, looking around as Ricard sat him down on the bed. "I wouldn't try it now, but I used to be able to climb through the window and get out." He jumped off the bed and walked over to the window. The moon stood high in the night sky. Waxing crescent.
+"This used to be my room," Francis said, looking around as Ricard sat him down on the bed. "I wouldn't try it now, but I used to be able to climb through the window and get out." He jumped off the bed and walked over to the window. The moon stood high in the night sky. Waxing gibbous.
 
 "You think I could do it?" Ricard asked, walking up behind Francis. It didn't look like the most daunting climb, but the state of the house made it a risky idea.
 
@@ -292,3 +292,7 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 Francis didn't reply, he'd already closed his eyes. Ricard held him tight, running his fingers through the fox's bright red fur. All wrapped up and relaxed, Ricard felt like he was holding a large stuffed animal. He sighed and watched Francis's calm face.
 
 "I love you," Ricard whispered, planting a kiss on top of Francis's head. He got a low mumble in response and smiled as
+
+--
+
+

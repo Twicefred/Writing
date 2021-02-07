@@ -27,6 +27,10 @@ Patricia turned around to face her brother. Francis's heart sank as their eyes m
 
 "I'm so sorry, Pat," Francis said. He drew a ragged breath and blinked away the tears welling up in his eyes. "I drove as fast as I could, I thought I would make it in time..."
 
+"It's ok, Francis," Patricia said.
+
+They both wept, trying hard to keep upright even though neither really had the strength to stand.
+
 ## Hospital Scene 2
 
 Cold, fluorescent lights bathed the room with an icy glow from the corridor outside. The hospital machinery had been turned off, but their tubes and wires still ran across the floor and the bed in the middle of the room. Outside, the snow had given way to a light rain clattering against the windows.

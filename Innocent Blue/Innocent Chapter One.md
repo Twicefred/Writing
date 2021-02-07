@@ -277,11 +277,19 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 "The nearest hospital is two hours away, and I can't drive your car," Francis said, holding on to the hem of Ricard's shirt as he leaned out the window. "But by all means, go ahead and break your neck if you want to."
 
-"Fair enough," Ricard said, stepping back and sitting down on the bed. He unbuttoned his shirt and threw it over an armchair in the corner of the room, winking at Francis whose gaze was frozen right on him.
+"Fair enough," Ricard said, stepping back and sitting down on the bed. He unbuttoned his shirt and threw it over an armchair in the corner of the room, winking at Francis whose gaze was momentarily frozen right on him.
 
 "See something you like?"
 
-"You're terrible at flirting," Francis replied, shrugging off his shirt and throwing it over the same chair.
+"You're terrible at flirting," Francis replied, shrugging off his shirt and folding it.
+
+"I think we have that in common," Ricard said, smiling as Francis undressed and climbed onto the bed next to him.
+
+"This is strange," Francis said, lying back against the pillows and staring up onto the ceiling. "It's like déjà vu, but not imagined."
+
+"I hope you had better taste in furniture when this was your room," Ricard said, lying down on his side next to Francis.
+
+"I don't know where a lot of my stuff went when I moved out," Francis said. He motioned to the armchair and floor lamp in the corner. "Those two were always there, but I had a bunch of bookshelves and other stuff here
 
 --
 
@@ -293,7 +301,7 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 Francis didn't reply, he'd already closed his eyes. Ricard held him tight, running his fingers through the fox's bright red fur. All wrapped up and relaxed, Ricard felt like he was holding a large stuffed animal. He sighed and watched Francis's calm face.
 
-"I love you," Ricard whispered, planting a kiss on top of Francis's head. He got a low mumble in response and smiled as
+"I love you," Ricard whispered, smiling as he got a low mumble in response.
 
 --
 

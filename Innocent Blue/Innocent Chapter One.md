@@ -102,7 +102,7 @@ The light breeze from the open window kicked up little clouds of dust all over t
 
 Ricard tilted his head, looking at Francis beside him.
 
-"-
+"No one is perfect, Francis," Ricard said. He held out his hand, letting Francis place his smaller paw against his open palm. "I think you can be a bit grouchy sometimes, and your self-esteem could use a little boost, but I don't think you're full of issues. Not more so than anyone else."
 
 --
 
@@ -279,7 +279,9 @@ Ricard carried Francis into the guest room, lighting the dim ceiling lamp as the
 
 "Fair enough," Ricard said, stepping back and sitting down on the bed. He unbuttoned his shirt and threw it over an armchair in the corner of the room, winking at Francis whose gaze was frozen right on him.
 
+"See something you like?"
 
+"You're terrible at flirting," Francis replied, shrugging off his shirt and throwing it over the same chair.
 
 --
 

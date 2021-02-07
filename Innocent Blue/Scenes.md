@@ -25,7 +25,7 @@ Francis held his breath when he opened the door. The lights were turned off insi
 
 Patricia turned around to face her brother. Francis's heart sank as their eyes made contact. Neither said a word as Francis closed the distance between them and they embraced. Patricia's cheeks were wet with tears and she shivered as Francis hugged her tight.
 
-"I'm so sorry, Pat," Francis said. He drew a ragged breath and blinked away the tears welling up in his eyes. "I drove as fast as I could, I didn't think I would..."
+"I'm so sorry, Pat," Francis said. He drew a ragged breath and blinked away the tears welling up in his eyes. "I drove as fast as I could, I thought I would make it in time..."
 
 ## Hospital Scene 2
 

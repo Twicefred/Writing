@@ -8,3 +8,5 @@ While Francis is away, Ricard finds an old photo album containing childhood pict
 
 ## Chapter Begins
 
+The sky was still pink with dawn's light when Ricard woke up. The sun shone straight onto his face through the open window. Francis's old linen curtains did little to stop the bright light. Ricard shifted and found his fiancé snuggled tight against him. Francis still slept soundly, his snout pressed against Ricard's neck. Francis had a habit, Ricard noted, of clutching onto whatever was next to him and not letting go until he woke up. For now, Ricard was content to stay that way.
+
